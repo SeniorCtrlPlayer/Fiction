@@ -1,0 +1,125 @@
+# Chapter 5 - Doctor Mo
+
+After a **brief**[^1] moment, Han Li felt a tightening sensation on his **waist**[^2] as his body grew light. His body was suddenly lifted upwards.
+
+Turning his head, Han Li saw the lanky senior helping him ascend the cliff. With one hand around Han Li’s waist, the senior disciple climbed up the cliff with **nimble**[^3] legs. Han Li could not help but notice that the sun had already reached the center of the skies. It was noon.
+
+“So I failed the test after all.” Han Li felt depression set in his heart. It seemed unfair. Even though he had **desperately**[^4] pushed forward, almost to the point of **disregarding**[^5] his life, why couldn’t he compare to the other children?
+
+In an **instant**[^6], the Bone Refining Cliff appeared before him. There were six other children resting on top of the cliff. Out of the six, only Wu Yan had the strength to have a conversation with a middle-aged old man wearing a dark blue garb. Division Head Yue as well as Protector Wang were also standing near him. They were waiting for the senior disciples to escort the rest of the children up the Bone Refining Cliff.
+
+After all the children had been escorted up the cliff, Division Head Yue stepped forward with a **solemn**[^7] expression on his face as he began to **address**[^8] the kids:
+
+“This time round, only seven of you passed. Out of this group, six will enter my Bai Duan Division and formally become our sect’s Inner Disciples.” Division Head Yue spoke slowly at the crowd of children.
+
+“As for Wu Yan, the first disciple to reach the top of the Bone Refining Cliff, he performed outstandingly and, **as such**[^9], will be directly sent to the Seven Supreme Division to learn the sect’s secret skills and martial arts.” After speaking, Division Head Yue glanced at the old man wearing the dark blue garb. The old man **twirled**[^10] his beard around one hand while nodding in satisfaction at Division Head Yue.
+
+“As for the others… ,” Division Head Yue **contemplated**[^11] the outcome of the remaining children for a moment before **rubbing**[^12] his **chin**[^13] and saying softly:
+
+“Zhang Tie and Han Li, although these two did not pass the test, they still performed admirably. Their determination will allow them to **cope**[^14] with the pain of practicing martial arts. The two of you will be Unofficial Disciples **assigned**[^15] to an instructor of our sect for the next half year. After half a year, you will be tested again. If you pass, you’ll be able to become Inner Disciples, but if you fail, you will be sent to join the Outer Disciples, helping the sect handle its external affairs.”
+
+Han Li stole a glance at the person named Zhang Tie. Like Han Li, Zhang Tie had begun climbing the rope but failed to reach the summit of the Bone Refining Cliff before midday.
+
+“Protector Wang, give the rest of the children some silver coins and send them back to their homes,” said Division Head Yue as he gave a cold stare at the children who failed the exam.
+
+“Understood!”
+
+Protector Wang **complied**[^16] with the order and he led the remainder of the children back down the cliff.
+
+“Zhang Jun, Wu Ming Rui, the two of you will assist me in sending the rest of these children to the Vice Division Head and Instructor Li.”
+
+Two senior disciples stepped forward and separated Han Li and the rest into two groups before leading them down the cliff. One of the senior disciples was the lanky senior that had always been behind Han Li. As they were descending the cliff, Han Li could not help but steal a glance at Wu Yan and discovered that he was still chatting with the old man in a dark blue robe, seemingly without any **intent**[^17] of moving from the spot.
+
+“He’s different from the rest of you. In the future, he will most likely be a core disciple. Only core disciples are sent to the Seven Supreme Division to train in the sect’s secret arts. Once he completes his training, at the very least, he will have the rank of a Protector.” The voice belonged to the long and thin face, who could tell what Han Li was thinking. From his tone, Han Li could hear **undisguised**[^18] **hints**[^19] of **envy**[^20] mixing with **jealousy**[^21].
+
+“Hmmph, isn’t Wu Yan just **pulling strings**[^22] and depending on his family’s connections? If it wasn’t for his older cousin being married to Sect Leader Ma, how could he be selected as a core disciple with such **meager**[^23] skill? He already surpassed the age limit but he was still sent to the Seven Supreme Division,” the senior said in a freezing tone that was **comparable**[^24] to a cold wind on a winter day.
+
+“Zhang Jun, have you gone **mad**[^25]? How dare you **gossip**[^26] about the Sect Leader’s decisions? If this news was spread, both of us could suffer from **cruel**[^27] punishments and end up in **dire straits**[^28]!” After hearing Zhang Jun’s words, the other senior with the long and thin face felt shock in his heart and rapidly checked his surroundings to make sure no one heard Zhang Jun. Only after discovering that there were no other disciples did he heave a sigh of **relief**[^29].
+
+The senior with the cold **countenance**[^30] snorted as if he were **harboring hatred**[^31] in his heart, but after Wu Ming Rui’s warning, he stopped talking. Only then did Han Li understand that the senior with the cold countenance was Zhang Jun. Listening to their conversation, Han Li could **roughly**[^32] understand what they were talking about. Wu Yan entered the Seven Supreme Division, not because of his own skills, but because he had the backing of the Sect Leader!
+
+As they walked along the mountain path, these two seniors both thought of the sect’s internal affairs, which filled them with sadness. Lacking the mood to converse, they silently led the children forward. The rest of the children also dared not speak out of turn; perhaps they were thinking of the differences between the Seven Mysteries Sect and their hometowns.
+
+Just as they were passing through a **forested**[^33] region, a sixty year-old man **emerged**[^34] from the woods. He was tall and thin with a yellow **tinge**[^35] to his skin and a head full of white hair. As he approached them, he coughed with every step, causing many of them to worry that he was suffering a great deal and could **collapse**[^36] at any moment.
+
+The senior disciples, upon seeing this old man, did not show **a trace of**[^37] worry on their faces. Instead, they respectfully greeted the old man with a bow.
+
+“Doctor Mo, this disciple greets you. Is there anything that you need this disciple to handle?” Zhang Jun, unlike his previously cold demeanor, now had an expression full of respect. To Zhang Jun, this old man in front of him was worthy of more respect than Division Head and even the Sect Leader.
+
+“Oh, is this the latest batch of disciples?” The old man continued coughing and asked with a **hoarse**[^38] voice.
+
+“Yes, among the eight of them, six are official Inner Disciples and two are Unofficial Disciples,” responded Zhang Jun.
+
+“**Coincidentally**[^39], I’m currently in need of some manpower, specifically an **alchemy**[^40] apprentice and an **herb**[^41] gatherer. Let these two follow me instead.” Doctor Mo randomly **raise**[^42] his finger and pointed, just as luck would have it, towards Han Li and Zhang Tie, the two Unofficial Disciples.
+
+“This disciple will obey your words. These two Unofficial Disciples actually caught eyes of the esteemed Doctor Mo, their **karma**[^43] must be exceptional…The two of you, why are you still standing there? Hurry and come to pay your respects to Doctor Mo. If you are able to learn a thing or two about the arts of **healing**[^44] from this esteemed elder, you will be extremely fortunate.” The two seniors had no traces of hesitation or objection on their face. The senior with the long and thin face, Wu Ming Rui, **flattered**[^45] Doctor Mo in order to curry favor with him.
+
+Han Li and Zhang Tie, upon seeing the two senior disciples’ sudden change of heart, had no objections. They could only accept in silence and follow the old man into the forest.
+
+Doctor Mo led the two of them down a small path that **meandered**[^46] through the forest. The path turned east and west before suddenly stopping in front of an entrance leading to a **luscious**[^47] green valley.
+
+On the left side of the valley was a courtyard used for **farming**[^48] medicinal herbs that **emitted**[^49] a **fragrant**[^50] smell into the air. After they entered the courtyard, Han Li spotted many herbs that were unknown to him. On the right side of the valley were lines of houses in various sizes. Looking in all four directions, Han Li saw no exit besides the gateway from which they entered.
+
+“This valley is called the God Hand Valley. Other disciples will not dare enter this valley unless they are suffering from injuries.” The old man stood in the middle of the line of houses and pointed to a smaller house. “For now, this will be your home. Rest and **replenish**[^51] your energy. When night falls, look for me in my house so I can inform you about several things.”
+
+“The two of you can call me Old Mo.” The old man huffed and considered for a moment before saying:
+
+“Doctor Mo is also acceptable.”
+
+After speaking, Doctor Mo ignored the two of them and slowly walked towards an **impressive**[^52] looking house, coughing with each step.
+
+Completely exhausted, Han Li did not bother to **check with**[^53] Zhang Tie before entering the house and selecting a bed to fall asleep on. He was satisfied, because, at this moment, he was halfway to becoming an Inner Disciple of the Seven Mysteries Sect.
+
+[^1]: 短时间的; 短暂的;
+[^2]: 腰; 腰部;
+[^3]: 灵活的; 敏捷的;
+[^4]: 绝望地；不顾一切地，拼命地;
+[^5]: 不理会; 不顾; 漠视;
+[^6]: 立即的; 立刻的;
+[^7]: 冷峻的; 表情严肃的;
+[^8]: 演讲; 向…说话;
+[^9]: 严格来说
+[^10]: 捻弄, 转动
+[^11]: 考虑; 思量;
+[^12]: 擦; 磨; 搓;
+[^13]: 颏; 下巴;
+[^14]: 对付，处理;
+[^15]: 分配(某物); 分派
+[^16]: 遵从; 服从; 顺从;
+[^17]: 意图; 意向;
+[^18]: 不加掩饰的;
+[^19]: 暗示; 提示; 示意; 征兆; 迹象; 
+[^20]: 忌妒;
+[^21]: 羡慕;
+[^22]: 走内线;走关系
+[^23]: 贫瘠的
+[^24]: 类似的;
+[^25]: 疯狂的; 猛烈的;
+[^26]: 说三道四;
+[^27]: 残酷的;
+[^28]: 困境
+[^29]: 轻松; 解脱
+[^30]: 面容; 脸色;
+[^31]: 窝藏仇恨
+[^32]: 大约; 大致;
+[^33]: 满是森林的;
+[^34]: 出现
+[^35]: 几分(颜色、感情或性质);
+[^36]: 倒下，昏倒
+[^37]: 一丝;
+[^38]: 嘶哑的;
+[^39]: 巧得很; 凑巧;
+[^40]: 炼金术
+[^41]: 药草;
+[^42]: 提升; 举起; 提起;
+[^43]: 善报;
+[^44]: 治疗;
+[^45]: 奉承; 讨好;
+[^46]: 蜿蜒而行; 迂回曲折
+[^47]: 绚丽的;
+[^48]: 务农; 种田
+[^49]: 发出，射出，散发(光、热、声音、气等);
+[^50]: 香的; 芳香的;
+[^51]: 补充; 重新装满;
+[^52]: 令人赞叹的;
+[^53]: 跟…联系;

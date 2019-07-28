@@ -1,0 +1,143 @@
+# Chapter 2 - Green Ox Village
+
+Han Li’s home was said to be a small city, but it was actually just a large village called Green Ox Village. Only those who lived in the mountainous **region**[^1] and the natives with no knowledge of the outside world called the village Green Ox City. The only reason why Han Li knew about this was because he had been informed by his Uncle Zhang, who had been working as a gatekeeper for more than ten years.
+
+Green Ox Village was**n’t very large**[^2]. It only had one main road, known as Green Ox Street, which **spanned**[^3] from the eastern to the western borders of the village. There was also only one **tavern**[^4] in village, located on its western border. For any traveling merchant that didn’t want to sleep outdoors, this tavern was the only option.
+
+There was only one road for carriages in the western part of Green Ox Village. It ran from the gates of the village and the Green Ox Tavern all the way to the Spring Fragrance Restaurant, the only other place anyone would visit besides the tavern.
+
+Spring Fragrance Restaurant wasn’t big **by any means**[^5] and was actually quite old-fashioned. However, this **establishment**[^6] had a certain **charm**[^7] that was appealing to many travelers. Every day at noon, there would always be a crowd of people, making the place constantly **swamped**[^8].
+
+A **bearded**[^9] man with a round face **emerged**[^10] from a carriage along with a dark skinned, rotund little boy who looked to be around ten years old. They both walked into the restaurant with a **swagger**[^11]. All of the regular customers knew who this man was. He was the manager of this restaurant, “Fatty Han.” The boy, however, was not someone they were familiar with.
+
+“Elder Han, this tanned little boy **resembles**[^12] you a lot. Could it be a child from a **prostitute**[^13] you spent the night with?” someone joked.
+
+The moment the joke was **uttered**[^14], the entire restaurant **roared**[^15] with laughter.
+
+“Peh! This is the son of my blood brother, my own nephew! Of course he’ll look like me,” Fatty Han said proudly instead of being angered.
+
+This **duo**[^16] had traveled for three whole days without rest before arriving at the village. They were Han Li and his Third Uncle, who was known as “Fatty Han” by the villagespeople.
+
+Fatty Han greeted a few regulars before bringing Han Li to the back of the restaurant, and entered a remote courtyard.
+
+“Xiao Li, you should rest here for a while. When the time comes for the Inner Disciple Examinations, I’ll call you. For now, I must leave in order to **attend to a few regulars**[^17].” Fatty Han pointed at a side room in the courtyard and kindly **motioned**[^18] for Han Li to enter it.
+
+(TL: “Xiao” in this context means “little”)
+
+After saying that, Han Li’s Third Uncle turned around and hurried back inside the restaurant to **tend**[^19] to his customers.
+
+As he reached the door, he felt a sudden unease in his heart and reminded Han Li, “Don’t **run about**[^20]. You might get lost in the village if you wander around. So it’s best if you don’t leave this courtyard.”
+
+“En!”
+
+Hearing Han Li’s honest response, he **nodded in relief**[^21] and walked out the door.
+
+After his Third Uncle left the courtyard, Han Li suddenly felt exhausted. The moment his head landed on his pillow, he fell into a deep sleep and began snoring, surprisingly without the fear of a normal kid staying alone in unfamiliar surroundings.
+
+When the night came, a **servant**[^22] came by with some food. Although it wasn’t a **lavish**[^23] meal, it was still delicious. After Han Li ate the food, the servant was clearing away the remaining dishes when his Third Uncle **leisurely**[^24] walked in.
+
+“How was it? Was the meal suitable to your taste? Do you miss home?”
+
+“Yes, I miss home…” Han Li replied in his childish voice.
+
+Third Uncle seemed satisfied with Han Li’s response. He began to talk to him about his daily life and **bragged**[^25] about many of his experiences. Gradually, Han Li became less shy and started to laugh and talk with his Third Uncle.
+
+In this manner, two days quickly passed.
+
+On the third day, after Han Li finished dinner, he was waiting for his uncle’s stories of Jiang Hu when a carriage stopped in front of the restaurant door.
+
+This carriage was painted a **shiny**[^26] black color and even the horse was a rarely seen golden **steed**[^27]. But what attracted the most attention was that on the frame of the carriage was the word “Mystery” written in silver characters in the middle of a red triangle emblazing a black **banner**[^28]. The image on the banner also emitted an **unfathomable**[^29] air.
+
+Seeing this banner, every martial arts expert in the area knew that this carriage belonged to one of the two local **overlords**[^30] in the area, the Seven Mysteries Sect. It seemed that an **esteemed**[^31] guest had arrived in Green Ox Village.
+
+The Seven Mysteries Sect was previously known as the Seven Supreme Sect. Two hundred years ago, the sect was established by an extremely famous martial master named “Sovereign of the Seven Supreme”. Having once **swept across**[^32] and **dominated**[^33] the Jing Province and the nearby several Provinces for a few decades, the Sovereign of the Seven Supreme was **resoundingly**[^34] famous. But after he was died with illness, the power of the Seven Mysteries Sect took a **devastating hit**[^35] and its influence dropped drastically. In the end, the Seven Mysteries Sect was forced out of the main city of the Jing Province by the combined efforts of its **rival**[^36] sects. A hundred years ago, the sect was forced to **relocate**[^37] to an extremely remote area called the Celestial Rainbow Mountain. From then on, they rebuilt their roots in that third rate region and became a local powerhouse.
+
+Locally, the only other power that could rival the Seven Mysteries Sect was the Feral Wolf Gang.
+
+The Feral Wolf Gang was originally a **gang**[^38] of **horse-mounted**[^39] **bandits**[^40] from the Jing Province that had no **qualms**[^41] about burning, killing, **looting**[^42] and pillaging. After a while, an army **dispatched**[^43] by the **imperial**[^44] court encircled and fiercely **suppressed**[^45] the bandits. Some of the bandits accepted the **amnesty granted**[^46] to them by the imperial court while the remaining bandits reformed themselves into the Feral Wolf Gang. The Feral Wolf Gang was **exceedingly cruel**[^47] and bloodthirsty, retaining their former characteristics of having no qualms about committing **atrocities**[^48]. Thus, whenever they **clashed**[^49], the Seven Mysteries Sect was always at a disadvantage.
+
+Even though the Feral Wolf Gang controlled more villages than the Seven Mysteries Sect, the gang didn’t know how to manage the villages effectively to run businesses and generate income. In comparison, the wealth of the villages controlled by the Seven Mysteries Sect vastly **outstripped**[^50] the villages under Feral Wolf Gang’s control. **Jealous**[^51] of the Seven Mysteries Sect’s **prosperity**[^52], the Feral Wolf Gang made plans to take over the Sect’s **territory**[^53], resulting in the **longstanding**[^54] conflict between the two major powers. The conflict gave the current Sect Leader of the Seven Mysteries Sect endless headaches. Because of the Feral Wolf Gang, the Seven Mysteries Sect have been accepting an increasing number of disciples in recent years.
+
+After the carriage stopped, a **skinny**[^55] forty year-old man jumped down. His movements were extremely **nimble**[^56], **indicating**[^57] that he was a powerful expert. He seemed to be very familiar with Fatty Han’s restaurant and walked **pompously**[^58] towards the room Han Li was residing in.
+
+Upon seeing the forty year-old man, Fatty Han immediately greeted him respectfully.
+
+“Protector Wang, why has an esteemed person such as yourself personally made the trip?”
+
+“Humph!” Protector Wang coldly **snorted**[^60].
+
+“The roads here haven’t been peaceful lately. Because of this, there’s a need to strengthen the defenses. Thus, the elders ordered that I personally come. Don’t speak any more rubbish. Is this the child you wanted to **nominate**[^61]?”
+
+“Yes, yes, this is my nephew. I hope that Protector Wang will take care of him.”
+
+Looking at the impatient look on Protector Wang face, Third Uncle immediately **retrieved**[^62] a heavy-looking pouch and secretly passed it over to Protector Wang.
+
+After he **assessed**[^63] the weight of the pouch, Protector Wang’s impatient **demeanor**[^64] visibly relaxed.
+
+“Fatty Han, you truly know how to **conduct yourself**[^65]! On the way back, I will make sure that all of your nephew’s needs are well cared for. Anyways, it is getting pretty late now. We had best hurry on our way.”
+
+[^1]: 区域，地区
+[^2]: 的确不大
+[^3]: 横跨; 跨越;
+[^4]: 酒馆; 小旅店; 客栈; 
+[^5]: 无论如何
+[^6]: 旅馆
+[^7]: 魅力
+[^8]: 应接不暇
+[^9]: 留胡子的;有胡须的
+[^10]: 出现，浮现
+[^11]: 神气十足;大摇大摆
+[^12]: 看起来像
+[^13]: 妓女
+[^14]: 说;讲
+[^15]: 放声大笑
+[^16]: 二人组
+[^17]: 照顾一些常客
+[^18]: 做动作，示意
+[^19]: 走向
+[^20]: 到处乱跑
+[^21]: 放心地点点头
+[^22]: 仆人
+[^23]: 耗资巨大的
+[^24]: 从容不迫地，慢慢地，悠闲地
+[^25]: 吹嘘
+[^26]: 光亮的;锃亮的
+[^27]: 骏马
+[^28]: 横幅
+[^29]: 难以理解的;莫测高深的
+[^30]: 领主，大王
+[^31]: 受尊敬的;受敬重的;受仰慕的
+[^32]: 横扫
+[^33]: 支配;控制
+[^34]: 令人瞩目地
+[^35]: 毁灭性的打击
+[^36]: 竞争对手
+[^37]: (使)搬迁，迁移
+[^38]: 一帮，一伙
+[^39]: 会骑马的
+[^40]: 土匪
+[^41]: 顾虑，不安
+[^42]: 打劫，抢劫，劫掠
+[^43]: 派遣
+[^44]: 皇帝的
+[^45]: 镇压
+[^46]: 招安
+[^47]: 非常残酷
+[^48]: 残暴行为
+[^49]: 冲突
+[^50]: 超过;胜过
+[^51]: 嫉妒
+[^52]: 繁荣
+[^53]: 领土
+[^54]: 长期的
+[^55]: 极瘦的;干瘦的
+[^56]: 灵活的;敏捷的
+[^57]: 表明;显示;象征;暗示
+[^58]: 傲慢地
+[^59]: 居住
+[^60]: 喷鼻息，哼
+[^61]: 推荐
+[^62]: 取回
+[^63]: 估算，估定
+[^64]: 行为；举止；态度
+[^65]: 做你自己

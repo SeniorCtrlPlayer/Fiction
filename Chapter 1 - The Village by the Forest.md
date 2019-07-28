@@ -4,7 +4,7 @@
 
 Next to him lay his second brother, Han Zhu, who appeared to be in a deep slumber. Snores intermittently floated over as he slept.
 
-Five feet from the bed was an **earthen** [^1] wall that had suffered from numerous cracks due to the passage of time. From the other side of the wall came the **nagging**[^2] voice of his mother and the occasional deep breathing of his father who was smoking his pipe.
+Five feet from the bed was an **earthen**[^1] wall that had suffered from numerous cracks due to the passage of time. From the other side of the wall came the **nagging**[^2] voice of his mother and the occasional deep breathing of his father who was smoking his pipe.
 
 Second Fool slowly closed his eyes, trying to force himself to sleep. He knew that if he didn’t go to sleep now, he wouldn’t be able to wake up early the next day. If he woke up late, he would not be able to go up to the mountains with his good friends to gather **firewood**[^3].
 

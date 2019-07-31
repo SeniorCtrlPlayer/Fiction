@@ -1,0 +1,115 @@
+# Chapter 11 - Difficult to Open Bottle
+
+Han Li didn’t meet many people on the way back except for a few senior disciples who were curious at why Han Li was limping his way back. But because he didn’t say anything, they didn’t pay much attention to him.
+
+As he returned back to his room, the pain in his toe got increasingly unbearable. Han Li sat on his bed and took off his shoes to examine his injury.
+
+The swelling was incredible! His right toe had an impressive **bulge**[^1] on it, while the **cuticle**[^2] on his toe turned blood red and **resembled**[^3] a big **chili**[^4].
+
+Han Li quickly took out a bottle of herbs from beneath his pillow. **Concocted**[^5] **meticulously**[^6] by Doctor Mo, this medicine sped up blood **clotting**[^7] to an astonishing degree. Doctor Mo didn’t easily give away medicine of this caliber. It **was originally meant for**[^8] Zhang Tie, who would **inevitably**[^9] suffer an injury while practicing the Way of the Armored Elephant. Han Li didn’t think that he would be the first to use the medicine.
+
+Opening the medicinal bottle, a strong herbal fragrance filled the room. He applied a small amount on his injury and immediately felt a relaxing **sensation**[^10]. Just as Doctor Mo had said, it had an immediate effect; Elder Mo’s medicine was truly amazing!
+
+Han Li took a clean cloth and wrapped up his foot before putting his shoes back on.
+
+Excellent! The pain was slowly **subsiding**[^11].
+
+He began to **take small steps**[^12], as if testing his pain threshold, nodding in satisfaction as he felt that moving was easier than before.
+
+Now, it was time to solve the **enigma**[^13] **posed by**[^14] the mysterious bottle that had caused such an injury to him.
+
+Han Li took out the bottle from his robes and wiped it clean to restore its natural **luster**[^15].
+
+This bottle wasn’t all that big, and a single hand could wrap around the entire length of its neck. It was actually smaller than the bottle that contained Doctor Mo’s medicine. The bottle had a shiny green luster and was **engraved**[^16] with a dark green leaf pattern that seemed almost alive. When Han Li felt the **contours**[^17] of the designs on the surface of the bottle, it was almost as if there were actual leaves **embedded**[^18] onto the bottle itself.
+
+Weighing the bottle in his hand, Han Li had no idea what type of **metal**[^19] was used to make this bottle, or if it was even **porcelain**[^20]. The bottle didn’t have a cold, **metallic**[^21] feeling to it, nor did it have the gloss of porcelain.
+
+Han Li had observed the bottle for a good while, and the only thing he could be certain of was that he didn’t know what material was used to make it. The shade of green seemed **intrinsically**[^22] part of the material itself, not a color that was added after it was made.
+
+Seeing how tightly the bottle was sealed, Han Li naturally became curious. Eyeing the bottle, he strongly desired to see whether or not there was something inside.
+
+Once more using his strength, he tried to pry open the cap of the bottle.
+
+One try, two tries, three tries…It was as if the cap of the bottle was **fused**[^23] into the neck. It was almost as if it was refusing to move.
+
+Han Li was **astounded**[^24]; back when he first picked up the bottle, due to waves of pain **assailing**[^25] him, he couldn’t use his full strength to open it and didn’t realize how stubborn the bottle was. But now that Han Li had finished tending to his foot and was using his full strength, he was surprised that he could still not pry open the bottle.
+
+Han Li tried to **twist**[^26] the **lid**[^27] once more until his arms began to ache, but there was still no success, so he had no choice but to stop.
+
+He stretched and **loosened**[^28] his arms, moving his wrist about. Just now, he had expended a large amount of energy to open the bottle, and his efforts had **strained**[^29] his wrist.
+
+Holding the bottle under his eye, he began to inspect it even closer. Unfortunately, there was no secret **mechanism**[^30] under the lid that would allow him to easily open it.
+
+This made Han Li **frustrated**[^31]. He wasn’t able to open the bottle, so how would he know if there was something inside or not? If it was sealed up this tightly, then there was definitely something precious inside.
+
+Han Li held the bottle tightly in his hand, looking at it with a **vacant**[^32] look. In the end, he had decided that he would let Zhang Tie, who was many times stronger than him, give it a try and see if he could open it. He knew that the current Zhang Tie could easily lift over 10 buckets of water up and down the mountains as if it was nothing. These days, it was Zhang Tie who refilled the water in the huge water tank every day.
+
+After he decided, Han Li headed towards Zhang Tie’s place, hoping that he would return soon.
+
+Waiting for someone was truly unpleasant; Han Li felt that time was passing by extremely slowly. Finally, after waiting for a long time, a **creaking**[^33] sound was heard as Zhang Tie pushed open the door.
+
+Looking up, Han Li saw that Zhang Tie was wearing only a thin piece of clothing. His entire body was steaming as he **perspired**[^34] freely. Han Li knew that this was the result of his cultivation, so he didn’t find it strange.
+
+Seeing as Han Li was already in his house waiting for him, Zhang Tie was **stunned**[^35]. But before Zhang Tie could say anything, Han Li impatiently **thrust**[^36] the bottle towards him.
+
+“Brother Zhang, please lend me your assistance and help me open this bottle.”
+
+“Where did you find this? **It looks rather nice**[^37]!” Zhang Tie remarked as he took the bottle.
+
+*Zi! Zi! Zi!* [TL Note: Sound of twisting bottle]
+
+“Ai! This bottle is so tightly sealed. It’s so hard to pry it open! What was used to make this?” Zhang Tie **cut straight to the chase**[^38]: he wasn’t able to open the bottle either.
+
+“Gah! I can’t do it; this bottle won’t open! Why don’t you find a senior disciple to help you?” Zhang Tie shook his head apologetically and handed the bottle back to Han Li along with the suggestion.
+
+“Even you can’t open this?” Han Li was getting more anxious and couldn’t help but **pace around**[^39] the room.
+
+“Ai! What happened to your leg?” Zhang Tie **inquired**[^40] as he noticed Han Li’s foot.
+
+“It’s nothing; I kicked a rock on the road.” Han Li didn’t know why but he didn’t want to tell Zhang Tie about his surprise **encounter**[^41] with the bottle just yet. Right now, he wanted to keep the bottle his own personal secret.
+
+Han Li was feeling very disappointed in his heart. He didn’t want to sit around and chat with Zhang Tie at the moment, and after briefly asking about how his cultivation was progressing, Han Li immediately left the room and returned back to his own place to think of a way to resolve his personal problem.
+
+Returning back to his room, Han Li put the bottle on the table and stared intensely at it. At the same time, his mind was trying to think of solutions to open the mysterious bottle.
+
+[^1]: 鼓起; 凸起
+[^2]: 表皮
+[^3]: 看起来像
+[^4]: 辣椒
+[^5]: 调制，调合，配制
+[^6]: 极仔细地
+[^7]: 凝结成块
+[^8]: 原打算为
+[^9]: 不可避免地
+[^10]: 感觉
+[^11]: 趋于平静; 平息; 减弱; 消退;
+[^12]: 走了几小步
+[^13]: 神秘的人; 费解的事物;
+[^14]: 由...提出
+[^15]: 光泽；光彩
+[^16]: 在…上雕刻
+[^17]: 外形
+[^18]: 嵌入
+[^19]: 金属
+[^20]: 瓷器
+[^21]: 金属般的;
+[^22]: 本质地；固有地；
+[^23]: 融合，熔接
+[^24]: 感到震惊的; 大吃一惊的;
+[^25]: 困扰;
+[^26]: 扭转，转动
+[^27]: 盖子
+[^28]: 松开，放开
+[^29]: 拉伤; 扭伤
+[^30]: 机械装置;
+[^31]: 沮丧
+[^32]: 呆滞的;
+[^33]: 嘎吱作响
+[^34]: 出汗
+[^35]: 使震惊
+[^36]: 塞;
+[^37]: 看起来相当不错
+[^38]: to talk about or deal with the important parts of a subject and not waste time with things that are not important
+[^39]: 围绕…踱来踱去; 
+[^40]: 询问
+[^41]: 遭遇

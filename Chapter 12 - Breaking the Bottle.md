@@ -6,7 +6,7 @@ Han Li tightly grasped the bottle with his hands, and with anger in his eyes, us
 
 “If I can’t use my own body’s strength, then I shall use other means to break it open,” decided Han Li after thinking of numerous ways to open the **vexing**[^2] bottle.
 
-Han Li **had long since**[^3] figured out that using brute strength and violence was not a solution.
+Han Li **had long since figured out**[^3] that using brute strength and violence was not a solution.
 
 This type of method, although simplistic and crude, was usually the most effective.
 
@@ -67,3 +67,45 @@ After doing so, he surveyed his surroundings; luckily, there was no one who had 
 After taking so many **precautions**[^41], Han Li felt more secure and threw away all of his concerns that the owner would discover the object and take it from him.
 
 Han Li stealthily replaced the hammer in the tool shed and casually walked back to God Hand Valley. As he limped back to his residence, night had fallen.
+
+[^1]: 击碎
+[^2]: 令人烦恼
+[^3]: 很早就知道
+[^4]: 错综复杂的
+[^5]: 碎片
+[^6]: 隐痛
+[^7]: 不情愿
+[^8]: 精神错乱
+[^9]: 溜进
+[^10]: 储物棚
+[^11]: 锤子
+[^12]: 大量
+[^13]: 到处乱放
+[^14]: 砖
+[^15]: 击打
+[^16]: 利用
+[^17]: 发狂
+[^18]: 划痕
+[^19]: 惊呆的
+[^20]: 有光泽的
+[^21]: 无瑕疵的
+[^22]: 激烈的
+[^23]: 彻底搜查
+[^24]: 推测
+[^25]: 堕落的
+[^26]: 奢侈的生活
+[^27]: 狂怒
+[^28]: 农村的
+[^29]: 尖刻的
+[^30]: 恶毒的
+[^31]: 贿赂
+[^32]: 元老
+[^33]: 玷污
+[^34]: 意图
+[^35]: 捉弄
+[^36]: 偏僻的
+[^37]: 缝合
+[^38]: 抵抗...的
+[^39]: 皮革
+[^40]: 野猪
+[^41]: 预防措施

@@ -1,0 +1,131 @@
+# Chapter 13 - Strange Phenomenons
+
+Because Han Li’s leg was injured, Zhang Tie personally delivered the food to Han Li’s house and accompanied him for dinner.
+
+Looking at the **clumsy**[^1] Zhang Tie in his house, moving the chairs and setting the table, Han Li couldn't help but find it funny. Zhang Tie’s care caused traces of warmth to enter his heart.
+
+After the table was set, both of them joked around as they ate, pushing food in their mouths while asking about their individual cultivation progress.
+
+The moment Han Li **brought up**[^2] the Way of the Armored Elephant, Zhang Tie sighed **dejectedly**[^3].
+
+Currently, Zhang Tie had only managed to cultivate the martial skill to its first layer but was already half **tortured**[^4] to death by the **immense**[^5] pain. He had to **soak**[^6] himself in **foul**[^7]-smelling herbal baths every night as well as suffer beatings from Doctor Mo designed to toughen his body and strengthen his bones.
+
+This method of **boorish**[^8] cultivation had caused Zhang Tie many sleepless nights. Because his entire body was swollen from the beatings, the moment his skin touched his bed, he would **grit his teeth**[^9] in pain.
+
+To him, cultivating the Way of the Armored Elephant was nothing but a **nightmare**[^10].
+
+**With regard to**[^11] Han Li’s cultivation of the nameless oracular chant, Zhang Tie could not help but feel **envy**[^12] in his heart.
+
+He felt that Han Li only needed to spend his time peacefully in **meditation**[^13] like a **monk**[^14]. Hearing Zhang Tie’s emotions, Han Li had nothing to say **in his defense**[^15]. He was also aware that his cultivation was much easier when compared to Zhang Tie’s arduous labor.
+
+Han Li could somewhat understand Zhang Tie’s fear towards the Way of the Armored Elephant. As he progressed through the nine layers of the Way of the Armored Elephant, he would have to bear unimaginable pain.
+
+Despite the difficulty, Zhang Tie had persisted, refusing to give up. Han Li could not help but admire and respect Zhang Tie for his **unyielding**[^16] personality.
+
+If Han Li were in Zhang Tie’s shoes, he would never have chosen to practice such a **domineering**[^17] skill. Even if the skill could turn him into a **world-shaking**[^18] expert **overnight**[^19], he would still reject it.
+
+The two of them had almost finished dinner as they were talking excitedly about martial arts. Once the meal was over, Zhang Tie cleared the **bowls**[^20] and **bid**[^21] his farewell. Before leaving, he still reminded Han Li to take care of his injured foot and to go to sleep early.
+
+Standing at the door, Han Li watched as Zhang Tie left and quickly returned back to his house, closing all the windows except for a slight opening in the **skylight**[^22] to allow some air to flow through before taking out the mysterious bottle from his leather pouch.
+
+Han Li was only a ten year-old child with **a short attention span**[^23]. After studying the bottle for a short period of time, he quickly got bored. With his foot injury, Han Li also felt somewhat tired out by today’s turn of events. Unknowingly, he fell asleep on his bed with his hand holding onto the bottle.
+
+Time passed by. Just when Han Li was sleeping soundly, he suddenly felt an **icy**[^24] cool feeling flowing from his hand.
+
+Han Li **involuntarily**[^25] **shivered**[^26], and he forcefully opened his heavy eyelids, gazing at his hand in a daze[^27].
+
+“Oh!” He immediately sat up with his mouth open from shock, **to such an extent**[^28] that **saliva**[^29] dripped down from his gaping[^30] mouth. He no longer felt sleepy; instead, his attention **was fixed on**[^31] the strange sight in front of him.
+
+Rays of white light could be seen beaming[^32] through the gap[^33] from the skylight. The beams **concentrated around**[^34] the bottle Han Li held in his hand, forming many rice-sized white dots of light on the surface of the bottle. **It gave the impression that**[^35] the bottle was enveloped[^36] by the rays of white light.
+
+The rays of light looked extremely gentle, not **menacing**[^37] at all, and that icy cool feeling originated **precisely**[^38] from the rays of light!
+
+Han Li **swallowed**[^39] a big **gulp**[^40] of saliva and finally turned his eyes away from the bottle. As if it burned his hand, he quickly threw the bottle to one side before **scrambling**[^41] to the other side of the room.
+
+After a moment of **vigilance**[^42], he realized that nothing was wrong and slowly inched towards the mysterious bottle.
+
+The mysterious bottle enveloped by the white light, other than looking beautiful, seemed to possess an aura that was not of this world.
+
+Han Li hesitated for awhile before using his finger to **poke**[^43] the bottle a few times. Seeing there was no reaction, he **cautiously**[^44] picked up the bottle again. Putting the bottle on the table, he laid on the nearby bed and closely examined this never-before-seen phenomenon.
+
+Han Li focused his full attention on the mysterious bottle for about an hour and a half without even blinking before he finally realized some of the secrets that the mysterious bottle was hiding.
+
+The mysterious bottle was **incessantly**[^45] absorbing the rice-sized **beads**[^46] of white light surrounding it. No, not simply absorbing; it was as if the beads of white light had a will of their own and were fighting with each other in order to be the first to enter the bottle.
+
+Han Li viewed this extremely **bizarre**[^47] event and used his fingertip to touch a bead of white light.
+
+It felt icy cold! Other than this, there was nothing special about it.
+
+Han Li inclined his head and looked upward.
+
+The rays of white light were still beaming through the gap in the skylight as if they had no intention of stopping.
+
+Han Li surveyed the interior of his room to make sure the doors and windows were all closed before inclining his head to look at the skylight once more.
+
+Han Li was suddenly hit by a thought. He lightly pushed open the door, **popped his head out**[^48] and **peek**[^49] at his surroundings.
+
+Luckily, it was the middle of the night; other than insects, there was no one else.
+
+Han Li returned back to his room, grabbing the bottle and putting it back inside the pouch before hurrying outside again.
+
+He ran towards a remote location before stopping.
+
+Surveying all directions and ensuring there was no one nearby, Han Li cautiously removed the bottle from his pouch and placed it gently on the ground.
+
+While the mysterious bottle had been sealed in his pouch, the white rays of light had disappeared.
+
+However, Han Li was not worried.
+
+As he expected, after waiting for a while, rays of white light began **congregating**[^50] around the bottle from all directions. This time round[^51], the rays were much denser than the rays produced in his house. They tightly enveloped the mysterious bottle in a shroud[^] of white light, forming a ball of light the size of a human head.
+
+[^1]: 笨拙的
+[^2]: 提出(问题等)
+[^3]: 沮丧地
+[^4]: 折磨
+[^5]: 艰巨的
+[^6]: 浸泡
+[^7]: 难闻的
+[^8]: 粗鲁的
+[^9]: 咬紧牙关
+[^10]: 噩梦
+[^11]: 关于，就，说起
+[^12]: 忌妒
+[^13]: 冥想
+[^14]: 和尚
+[^15]: 为他辩护
+[^16]: 不屈的
+[^17]: 蛮横
+[^18]: 震惊世界的
+[^19]: 一整晚
+[^20]: 碗
+[^21]: 表达
+[^22]: 天窗
+[^23]: 注意时间短的
+[^24]: 冰冷的
+[^25]: 不由自主地
+[^26]: 颤抖
+[^27]: 茫然
+[^28]: 到这样一种程度
+[^29]: 唾液
+[^30]: 张开的
+[^31]: 固定在
+[^32]: 光柱
+[^33]: 缝隙
+[^34]: 围绕
+[^35]: 就好像，给人的印象是
+[^36]: 围绕
+[^37]: 威胁性的
+[^38]: 的确，清晰地
+[^39]: 吞下
+[^40]: 吞咽
+[^41]: 爬
+[^42]: 警觉
+[^43]: 戳
+[^44]: 小心谨慎地
+[^45]: 不断地
+[^46]: 珠子
+[^47]: 古怪的
+[^48]: 探出头
+[^49]: 偷看
+[^50]: 聚集
+[^51]: 此时此刻

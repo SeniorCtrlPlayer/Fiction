@@ -1,0 +1,139 @@
+# Chapter 15 - Four Years Later
+
+Doctor Mo was extremely satisfied with the amount of effort Han Li dedicated to his cultivation.
+
+However, he still felt that Han Li’s rate of progress at breaking through to the next layer in the oracular chant was too slow.
+
+These past few years, the illness Doctor Mo was suffering from had been getting more serious. He would cough countless times a day, with the bouts of coughing getting more and more frequent while lasting longer and longer.
+
+As the condition of his body worsened, Doctor Mo started to pay more attention to Han Li’s cultivation. From his relentless urging, one could see the anxiety in his heart.
+
+For some reason, Doctor Mo attached enormous importance to Han Li. Not only did he increase payment in terms of silver, Doctor Mo’s gaze was even filled with the **tender**[^1] emotion as if he were examining a rare treasure.
+
+Despite this, Han Li, who had reached the third layer in the oracular chant, noticed an underlying truth with his extremely **acute**[^2] senses. Han Li **inadvertently**[^3] discovered that behind Doctor Mo’s warm and friendly gaze hid a trace of coldness and extreme **greed**[^4], which made Han Li feel uncomfortable
+
+That gaze that Doctor Mo threw at him actually caused Han Li to be frightened from the **tips**[^5] of his hair all the way to the **marrow**[^6] in his bones. He felt that Doctor Mo saw him more as an object instead of as a living being.
+
+This made Han Li felt puzzled. What could he possibly have that Doctor Mo desired?
+
+“Of course, there was nothing I have that he would be interested in,” Han Li assured himself after thinking deeply.
+
+There were even times when Han Li thought that he was overly tired from cultivating the nameless chant, but he would shake his head in **shame**[^7]. He could not help but blame himself; after all, **berating**[^8] Doctor Mo behind his back was an **ungrateful**[^9] act.
+
+However, he did know the exact reason why, in the deepest **recesses**[^10] of his heart, he still held a feeling of caution whenever he interacted with Doctor Mo. As time passed, this feeling of caution got stronger and stronger.
+
+Currently, there was a huge problem facing Han Li. He had already reached the bottleneck of the third layer, but Doctor Mo’s **stock**[^11] of precious herbs had already run dry.
+
+Obviously, Han Li was not a genius by any means. If it was not for the assistance of the medicinal herbs, his cultivation progress would have long **stagnated**[^12].
+
+Every time he met Doctor Mo, Han Li could not help but to feel a sense of shame.
+
+Doctor Mo had **practically**[^13] spent all of his **fortunes**[^14] to **painstakingly**[^15] aid Han Li in his cultivation, creating **favorable**[^16] conditions for Han Li, and yet… Han Li was unable to satisfy his request.
+
+This made Han Li extremely unwilling to meet Doctor Mo’s gaze whenever there was an inquiry by Doctor Mo regarding his state of progress.
+
+Strangely enough, for God knows what reason, the highly skilled Doctor Mo was unable to know Han Li’s progress without being told by Han Li. Thus, he was kept in the dark regarding the problem of Han Li’s bottleneck.
+
+However, not long ago, the guilt in Han Li’s heart caused him to **seek out**[^17] Doctor Mo and **confess**[^18] about the bottleneck he faced in his cultivation.
+
+After Doctor Mo heard that in the past year, there had not been the **slightest**[^19] progress in Han Li’s cultivation, his normally expressionless face became extremely **unsightly**[^20].
+
+To Han Li’s surprise, Doctor Mo did not **rebuke**[^21] him. Instead, he told Han Li that he would be gone from the valley for a period of time to gather the necessary herbs and reminded Han Li to continue devoting his efforts into cultivating the oracular chant.
+
+Two days later, Doctor Mo brought along a case filled with tools needed to **extract**[^22] herbs and left the Seven Mysteries Sect.
+
+After he left, Han Li was all alone in the God Hand Valley.
+
+As for his good friend, Zhang Tie, he had already cultivated to the third  layer of the “Way of the Armored Elephant” two years ago and had disappeared without a trace. Zhang Tie only left a letter of farewell, stating that he wanted to explore Jiang Hu. This **incident**[^23] caused a great **disturbance**[^24] in the sect. After that, there were rumors that Zhang Tie’s family was **spared**[^25] from punishment after Doctor Mo **pleaded**[^26] on their behalf. Han Li felt that the entire matter was extremely bizarre, and after thinking about it, he was sure that there was more than meets the eye regarding this matter. **Regardless**[^27], Han Li held no position of importance in the sect; thus his words were ignored, and this matter had long since been swept under the **rug**[^28]. After **contemplating**[^29], Han Li thought, 'Could it be that Zhang Tie was so afraid of the **backlash**[^30] caused by the fourth layer of his martial skill that he ran away?'
+
+Putting his thoughts of Zhang Tie aside, Han Li cultivated for a few days inside the valley but was still unable to make the slightest bit of progress. Since he was a hot-blooded male, he decided to explore the Celestial Rainbow Mountains instead of staying **cooped up**[^31] in the God Hand Valley.
+
+As he walked along the mountain paths, the paths that he knew so well actually **held a tinge of unfamiliarity**[^32]; he could not help but feel slight traces of sadness in his heart.
+
+These past few years, because of his cultivation, it was as if Han Li was staying in a **prison**[^33], unable to take a single step outside the valley.
+
+The disciples of the Seven Mysteries Sect should have already long forgotten his existence.
+
+On the roads, Han Li met a few disciples that were under **patrol**[^34] duty. From their **perspective**[^35], this stranger wearing the robes of an Inner Disciple filled them with **suspicion**[^36]. It was only after much explanation that Han Li managed to convince them that he was indeed a disciple of the Seven  Mysteries Sect.
+
+To avoid any more situations like that, Han Li decided to **traverse**[^37] along the small trails that were separated from the main road.
+
+As he expected, he met no other disciples, and this enabled him to travel faster with no interruptions.
+
+Looking at the beautiful scenery and listening to the birds **chirping**[^38], Han Li felt that, for that moment, it was as if all that was troubling him had **melted away**[^39].
+
+Suddenly, the sound of weapon **clashing**[^40] rang out as the air **erupted**[^41] with a **cacophony**[^42] of cursing voices emitted from the **ravine**[^43] of a nearby mountain.
+
+“What? There are so many people gathered in such a remote location?”
+
+Great curiosity arose in Han Li’s heart, and no longer fearing the questions of other disciples, he followed the noises and came close to the source of the sound.
+
+What a big crowd! Han Li stare **mutely**[^44] in shock.
+
+The ravine, completely hidden by the forest, was a small area. Despite this, there was a total of a hundred people crowding together in the ravine! There were also people standing on the branches of giant trees.
+
+Two groups of people were staring at each other, and a **thick**[^45] sense of **enmity**[^46] **emanated**[^47] from both groups.
+
+The group of people standing on the left side consisted of a total of 11 or 12 people while the group on the right side consisted of 6 or 7 people.
+
+Han Li discovered that these two groups were of similar age as him! All of them were about 15 – 20 years old.
+
+A slight smile hung on his lips as he thought, “What a **coincidence**[^48]!”
+
+From this group of people, Han Li could **pinpoint**[^49] a few familiar faces.
+
+“Fang Yu Bao, Zhang Da Lu, Ma Yun, Sun Li Song…., Ai! Fatty Wang is even more **obese**[^50] than the last time I saw him! This person is… Metalhead Liu. *Ze! Ze!*  He was actually so tanned back then. To think that his skin is so fair  and white now, has he become someone that lives on the earnings of a woman so he can sit and be lazy the whole day?” Han Li **sniggered**[^51] as he climbed the huge tree as he began to lose himself in his memories.
+
+(TL: Ze! Ze! – the sound of clicking one’s tongue)
+
+[^1]: 和善的
+[^2]: 灵敏的; 
+[^3]: 无意地; 不经意地; 
+[^4]: 贪婪; 贪心
+[^5]: 尖端; 尖儿;
+[^6]: 骨髓
+[^7]: 羞耻; 羞愧;
+[^8]: 指责
+[^9]: 忘恩负义的; 
+[^10]: 潜意识
+[^11]: 存货
+[^12]: 停滞; 不发展
+[^13]: 几乎; 差不多
+[^14]: 大笔的钱; 巨款;
+[^15]: 极力的; 
+[^16]: 有利的，顺利的
+[^17]: 寻找到; 找出; 
+[^18]: 坦白
+[^19]: 轻微的
+[^20]: 难看的;
+[^21]: 指责; 批评; 
+[^22]: 提取; 提炼
+[^23]: 发生的事情
+[^24]: 骚乱; 骚动;
+[^25]: 赦免; 放过
+[^26]: 恳求
+[^27]: 不顾; 不加理会; 
+[^28]: 小地毯;
+[^29]: 考虑; 思量
+[^30]: 强烈的反响
+[^31]: 被禁锢的;
+[^32]: 有点不熟悉 
+[^33]: 监狱; 牢狱
+[^34]: 巡逻; 巡查;
+[^35]: 态度; 观点;
+[^36]: 怀疑; 嫌疑;
+[^37]: 横过; 横越;
+[^38]: 吱喳叫;
+[^39]: 消失; 
+[^40]: 打斗; 冲突
+[^41]: 突然发出
+[^42]: 嘈杂声; 
+[^43]: 溪谷; 
+[^44]: 无言地; 一语不发地; 
+[^45]: 浓密的;
+[^46]: 敌意; 敌对
+[^47]: 表现; 显示; 
+[^48]: 巧合
+[^49]: 确定
+[^50]: 虚胖的;
+[^51]: 窃笑; 暗笑; 

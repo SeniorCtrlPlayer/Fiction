@@ -1,0 +1,104 @@
+# Chapter 18 - Senior Disciple Li (2)
+
+Was this Senior Disciple Li very famous? What is his background? Han Li was extremely surprised by this Senior Disciple Li’s popularity.
+
+“You don’t even know who is Senior Disciple Li?”
+
+“Well, I was in seclusion for a few years.”
+
+“Oh yes, I had actually forgotten. My memory is really bad. How could there be any disciple in the Seven Mysteries Sect who don’t know about Senior Disciple Li? It was this **preconception**[^1] that caused me to accidentally forgot about your seclusion.” Little Abacus suddenly realized as he hurriedly apologized.
+
+“Could you tell me more about this Senior Disciple Li?”
+
+“Senior Disciple Han, of course I can! Well, every junior disciple within the sect knows the story of Senior Disciple Li.” Little Abacus, seeing Senior Disciple Li’s **opponent**[^2] hesitating, took this opportunity to explain the legend of Senior Disciple Li to Han Li.
+
+“Senior Disciple Han, I don’t like to **boast**[^3], but the story of Senior Disciple Li is known to both the junior and senior disciples of the Seven Mysteries Sect."
+
+After a short introduction, Little Abacus began to reveal the story of Senior Disciple Li, and the story was legendary indeed.
+
+This Senior Disciple Li entered the sect about 4 years ago but was from a different batch than Han Li. He too failed the **preliminary**[^4] test and entered the sect as an Unofficial Disciple. But after half a year, not only did he achieve the best results out of all the Unofficial Disciples in his group, he also **sparred**[^5] with the other senior disciples. Defeating over 30 senior disciples single-handedly and breaking many records, Senior Disciple Li had gained a lot of attention from the higher ups in the sect. After an intense inspection, everyone was shocked that the bones of Senior Disciple Li were extremely ordinary and even his potential was determined to be limited. This made all the higher ups disappointed, so none of the higher ups accepted him as their personal disciple. After the 2 years of basic training, he was **delegated**[^6] as a disciple of a Protector and only after managing to learn the most basic of martial skills in the Seven Mysteries Sect. The Windstorm Saber Technique that he was **proficient**[^7] in was one of the most commonly taught martial skills in the Seven Mystery Sect.
+
+If that were the end of his story, Senior Disciple Li could not be considered legendary but rather someone with a good beginning and a weak ending. But after a short while, relying solely on this seemingly common martial skill, the Windstorm Saber Technique, he swept across all of the disciples in that year’s annual competition. Using just a single technique and ranked 16th, he became the **cream of the crop**[^8] within his generation, which **garnered**[^9] the attention of the higher ups once again.
+
+In the **subsequent**[^10] yearly competitions, Senior Disciple Li was incomparably bold and powerful, sweeping across all of the competitors like a sharp sword. He obtained an astonishingly high rank, gaining pride and face for all the new disciples. In last year’s annual competition, he actually was ranked 3rd! One must know that the disciples in the first 2 ranks had already been in the sect for over 10 years! These two disciples were members of an older generation, their age roughly 27 or 28, and they had a much greater internal strength compared to Senior Disciple Li. There were also many who believed that if Senior Disciple Li had the same level of internal strength as the 2 top ranked disciples, Senior Disciple Li would undoubtedly be ranked the 1st.
+
+**Precisely**[^11] because of this, Senior Disciple Li captured the attention of the higher ups once again and was specially nominated to be sent outside of the sect to **undergo**[^12] training and help out with the Seven Mystery Sect’s various external affairs. While disciples of the same generation were still undergoing training, Senior Disciple Li had long **rendered**[^13] **meritorious**[^14] service for the **sake**[^15] of the Seven Mystery Sect and had even been nicknamed “Tiger Li” in Jiang Hu. After which, he was allowed to enter the Seven Supreme Division and obtained the chance to practice higher grade martial arts.
+
+Han Li could not help being moved. After he heard the story, if everything he heard was real, Senior Disciple Li was indeed extraordinary. Senior Disciple Li started as an Unofficial Disciple and yet he could achieve the results he had today, how admirable indeed!
+
+On the side of Zhang Changgui, they **reluctantly**[^16] sent out someone out after a long period of discussion.
+
+The disciple they sent out looked to be relatively strong, **unsheathing**[^17] a **gleaming**[^18] sword with the thickness of a finger from the **scabbard**[^19] that hung around his waist. The disciple holding the sword was certainly not a person with an ordinary background.
+
+After Senior Disciple Li sensed that someone entered the ring, he slowly opened his eyes, which seemed to be filled with **radiance**[^20].
+
+Senior Disciple Li **shouted**[^21] out loud. His sudden shout, akin to a thunderclap. **reverberated**[^22] through the entire region, causing buzzing sounds in everyone’s ears. His opponent was likewise affected by the shout and an expression of fear began to surface on his face.
+
+As he shouted, Senior Disciple Li had already **drawn**[^23] his saber. With a flash of movement, one **deceptive**[^24] action released over tens of **blade**[^25] shadows, **trapping**[^26] his opponent in an **encirclement**[^27] of numerous blades.
+
+However, Senior Disciple Li’s opponent was quick **witted**[^28] and **vigilant**[^29]. Although he had **panicked**[^30] slightly, the movement of his sword was **insidious**[^31] and **crafty**[^32], and he managed to **parry**[^33] all of the blade strikes with an **impenetrable**[^34] defense!
+
+“Who is this person?” Han Li could not help but ask.
+
+“He is the son of the fifth Elder, Zhao Zi Ling. The skill he executed, Willow Swordplay, is extremely tough to fight against.”
+
+“How good is he compared to Senior Disciple Li?”
+
+“Naturally, Senior Disciple Li is still stronger.” Little Abacus said with pride glowing on his face.
+
+“Hmm, why didn't Zhang Changgui send out a stronger expert instead?”
+
+“Hehe! Zhao Zi Ling was already the strongest among them. Among us, the junior disciples, who would be able to **defeat**[^35] Senior Disciple Li? No matter who they send, it is useless.” Little Abacus **gloated**[^36] with a **hint**[^37] of  taking pleasure in their opponent’s misfortune.
+
+Indeed, although Zhao Zhi Ling’s swordplay was not **chaotic**[^38], he had lacked any killing **intent**[^39]. He was pressured almost to the point of defeat by Senior Disciple Li. Also, those with more experience could tell with a single glance that Zhao’s defeat was only a matter of time.
+
+Han Li watched for a moment before another suspicion rose in his heart.
+
+“There is one thing I still find strange. Why are all the disciples here of the younger generation? What about all our seniors? Even if the rules **prohibit**[^40] them from entering the fight, for the sake of excitement, there should still be one or two coming to **spectate**[^41]. However, there isn’t even a single senior disciple. Why is that so?” Han Li **candidly**[^42] voiced out the suspicion in his heart.
+
+Little Abacus, after hearing Han Li’s question, had a total change in his expression and had a **bizarre**[^43] look on his face as he gazed at Han Li. This made Han Li feel extremely puzzled. Could it be that he had asked a question that was considered **taboo**[^44] in the sect?
+
+[^1]: 事先形成的观念; 先入之见;
+[^2]: 对手; 竞争者;
+[^3]: 自夸; 自吹自擂;
+[^4]: 预备性的; 初步的
+[^5]: 练习拳击;
+[^6]: 授(权); 把(工作、权力等)委托
+[^7]: 熟练的; 娴熟的; 精通的;
+[^8]: 百里挑一; 精华; 精英;s
+[^9]: 获得，得到
+[^10]: 随后的; 后来的;
+[^11]: 正是
+[^12]: 经历
+[^13]: 给予; 提供;
+[^14]: 值得赞扬的; 
+[^15]: 缘故，理由
+[^16]: 勉强; 懊丧地
+[^17]: 拔出; 
+[^18]: 闪耀的; 明亮的;
+[^19]: (刀、剑的) 鞘; 
+[^20]: 光辉; 
+[^21]: 大声说; 叫; 嚷;
+[^22]: 回响; 回荡;
+[^23]: 拉(动); 牵引; 拉
+[^24]: 欺骗性的;
+[^25]: 刀身; 刀片; 刀刃
+[^26]: 使落入险境; 
+[^27]: 两翼包围，围困，环绕
+[^28]: 机智的; 
+[^29]: 警觉的; 警惕的; 警戒的; 谨慎; 
+[^30]: 惊慌，惊慌失措; 
+[^31]: 潜伏的; 隐袭的; 隐伏的; 
+[^32]: 巧妙的; (尤指) 狡诈的，诡计多端的; 
+[^33]: 挡开，拦挡(攻击等); 逃避; 躲避; 回避; 
+[^34]: 高深莫测的; 
+[^35]: 击败; 战胜
+[^36]: 幸灾乐祸; 
+[^37]: 暗示; 提示; 示意; 征兆; 迹象; 少许; 少量; 
+[^38]: 混乱的; 杂乱的; 紊乱的; 
+[^39]: 热切的; 专注的
+[^40]: 禁止; 阻止; 使不可能; 
+[^41]: 观看
+[^42]: 坦白地; 坦率地; 
+[^43]: 异乎寻常的; 
+[^44]: 禁忌，忌讳

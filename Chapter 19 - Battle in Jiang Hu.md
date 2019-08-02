@@ -1,22 +1,22 @@
 # Chapter 19 - Battle in Jiang Hu
 
-“Senior Disciple Han, you are really **deaf** to the outside world. This was such a massive event in the sect and yet you didn’t know about this? Even though you were in seclusion, your master should have spoken of it to you.” Little Abacus’s tone seemed to get  more and more suspicious.
+“Senior Disciple Han, you are really **deaf**[^1] to the outside world. This was such a massive event in the sect and yet you didn’t know about this? Even though you were in seclusion, your master should have spoken of it to you.” Little Abacus’s tone seemed to get  more and more suspicious.
 
-After hearing the question, Han Li did not even **bother to** speak. Instead, he took out a **medallion** and passed it over for Little Abacus to inspect.
+After hearing the question, Han Li did not even **bother to**[^2] speak. Instead, he took out a **medallion**[^3] and passed it over for Little Abacus to inspect.
 
-“Senior Disciple Han, what are you doing? When have I ever doubted you? How could I not believe you? The moment I saw you, I realized that you looked familiar, I must have met you a long time ago, hehe!” Little Abacus quickly scanned the medallion, and upon finding out that Han Li was indeed the disciple of some Elder, he **frantically** laughed to **defuse the tension**.
+“Senior Disciple Han, what are you doing? When have I ever doubted you? How could I not believe you? The moment I saw you, I realized that you looked familiar, I must have met you a long time ago, hehe!” Little Abacus quickly scanned the medallion, and upon finding out that Han Li was indeed the disciple of some Elder, he **frantically**[^4] laughed to **defuse the tension**[^5].
 
 “Now, can you tell me?” Han Li was still concerned about the question he asked earlier.
 
 “Of course, there’s no problem.”
 
-“Damn, this is terrible, I hope I didn’t **offend** this guy.” Little Abacus **mumbled** as his heart **shuddered**, then he told the whole truth of the matter to Han Li.
+“Damn, this is terrible, I hope I didn’t **offend**[^6] this guy.” Little Abacus **mumbled**[^7] as his heart **shuddered**[^8], then he told the whole truth of the matter to Han Li.
 
-For the past few years, the Seven Mysteries Sect and the Feral Wolf Gang had more and more clashes for the sake of the control of the nearby wealthy towns. In total, the two major powers had over 10 clashes, and they both suffered  plenty of **casualties**. Trained as **mounted** bandits, the members of the Feral Wolf Gang were extremely **ferocious** as if they were unafraid of death, and they would go **berserk** at the sight of blood. The disciples of  the Seven Mysteries Sect despite having superior martial arts, did not possess the right kind of killing **intent** that was necessary, and when fighting the Feral Wolf Gang, they would always avoid causing too much damage. Thus, in the end, the Seven Mysteries Sect would suffer more  casualties. After a few rounds of battle, the higher ups of Seven Mysteries Sect could not take this lying down and thus, they had **mobilized** the majority of disciples within their sect to smash the Feral Wolf Gang’s members into smithereens. There were two reasons why the Seven Mysteries Sect did so. First, the control of the towns within its **territory** was too valuable to be lost, and secondly, to have the disciples become used to bloodshed, allowing them to gain practical battle experience in Jiang Hu.
+For the past few years, the Seven Mysteries Sect and the Feral Wolf Gang had more and more clashes for the sake of the control of the nearby wealthy towns. In total, the two major powers had over 10 clashes, and they both suffered  plenty of **casualties**[^9]. Trained as **mounted**[^10] bandits, the members of the Feral Wolf Gang were extremely **ferocious**[^11] as if they were unafraid of death, and they would go **berserk**[^12] at the sight of blood. The disciples of  the Seven Mysteries Sect despite having superior martial arts, did not possess the right kind of killing **intent**[^13] that was necessary, and when fighting the Feral Wolf Gang, they would always avoid causing too much damage. Thus, in the end, the Seven Mysteries Sect would suffer more  casualties. After a few rounds of battle, the higher ups of Seven Mysteries Sect could not take this lying down and thus, they had **mobilized**[^14] the majority of disciples within their sect to smash the Feral Wolf Gang’s members into smithereens. There were two reasons why the Seven Mysteries Sect did so. First, the control of the towns within its **territory**[^15] was too valuable to be lost, and secondly, to have the disciples become used to bloodshed, allowing them to gain practical battle experience in Jiang Hu.
 
 Even so, despite the Inner Disciples of the Seven Mysteries Sect holding the advantage during the last few battles, there had been too many casualties. Even some of the older seniors had failed to return to the sect alive. After Little Abacus said this, he could not help but sigh.
 
-After that, the sect leaders changed the strategy by letting the Inner Disciples take care of some **minor missions** and gain experience elsewhere in Jiang Hu. After they were used to combat, they would come back and join the clash against the Feral Wolf Gang. By doing so, it effectively minimized the number of casualties. Now, after each Inner Disciple had two years of training in the sect, they would be sent down the mountain to **take charge of** some minor missions to gain experiences before they were tasked to fight against the Feral Wolf Gang.
+After that, the sect leaders changed the strategy by letting the Inner Disciples take care of some **minor missions**[^16] and gain experience elsewhere in Jiang Hu. After they were used to combat, they would come back and join the clash against the Feral Wolf Gang. By doing so, it effectively minimized the number of casualties. Now, after each Inner Disciple had two years of training in the sect, they would be sent down the mountain to **take charge of**[^17] some minor missions to gain experiences before they were tasked to fight against the Feral Wolf Gang.
 
 (TL: Repetitive, I know)
 
@@ -28,27 +28,27 @@ Dang! A sound rang out as a sword flew into the sky.
 
 Zhao Zi Ling’s left hand was pressing on a wound on his right hand, and as he retreated a few steps, his face turned pale while he breathed heavily.
 
-Under Senior Disciple Li’s **ferocious** saber techniques, Zhao Zi Ling had no time to retreat, and thus, he had no choice but to use the sword in his hand to block the attack. Because his internal strength was **insufficient**, the weapon he held had been flung into the air because of the clash.
+Under Senior Disciple Li’s **ferocious**[^18] saber techniques, Zhao Zi Ling had no time to retreat, and thus, he had no choice but to use the sword in his hand to block the attack. Because his internal strength was **insufficient**[^19], the weapon he held had been flung into the air because of the clash.
 
 “Senior Disciple Li, you are formidable indeed. This junior brother admits his defeat.” Zhao Zi Ling forcefully smiled as he bowed slightly.
 
-Loud **exclamations** rang out among the spectators.
+Loud **exclamations**[^20] rang out among the spectators.
 
-“Senior Disciple Li, what a **graceful** martial skill!”
+“Senior Disciple Li, what a **graceful**[^21] martial skill!”
 
 “Senior Disciple Li, excellent saber techniques!”
 
 “Senior Disciple Li, please give me some guidance!”
 
-Cries of admiration rang out for their idol, the sound **reverberating** through the entire region.
+Cries of admiration rang out for their idol, the sound **reverberating**[^22] through the entire region.
 
-Senior Disciple Li kept the huge saber lifted in the air while his cheeks turned red. Initially, it seemed that he wanted to say something, but his expression suddenly changed as he **furrowed** his **brows** as if thinking of something.
+Senior Disciple Li kept the huge saber lifted in the air while his cheeks turned red. Initially, it seemed that he wanted to say something, but his expression suddenly changed as he **furrowed**[^23] his **brows**[^24] as if thinking of something.
 
-Senior Disciple Li said coolly, “I still have **urgent** things to do. Goodbye.”
+Senior Disciple Li said coolly, “I still have **urgent**[^25] things to do. Goodbye.”
 
 Turning around, Senior Disciple Li relied on a movement technique to swiftly leave the area.
 
-“Ze Ze! Not only is Senior Disciple Li **proficient** in the saber arts, his movement technique is superior as well!”
+“Ze Ze! Not only is Senior Disciple Li **proficient**[^26] in the saber arts, his movement technique is superior as well!”
 
 “Yup!”
 
@@ -56,7 +56,7 @@ Turning around, Senior Disciple Li relied on a movement technique to swiftly lea
 
 Words of praise began to ring out.
 
-Han Li furrowed his brows. This Senior Disciple Li’s martial arts were indeed not bad, but it seems that he liked to be in the limelight, just like a teenager.
+Han Li furrowed his brows. This Senior Disciple Li’s martial arts were indeed not bad, but it seems that he liked to be in the **limelight**[^27], just like a teenager.
 
 After he reflected, Han Li could not help but smile bitterly. He himself was not any older than Senior Disciple Li, and yet, his thinking was so overly matured, just like an old man’s. It seems that after practicing the oracular chant, his mental state had matured at a faster rate when compared to his peers.
 
@@ -66,5 +66,5 @@ After he reflected, Han Li could not help but smile bitterly. He himself was not
 
 “Next time you are sick or injured, come look for me. I will treat you for free.” Han Li patted his shoulders, turned his body and walked back into the forest region.
 
-He left behind a **dumbstruck** Jin Dong Bao, who was still **pondering** over what Han Li’s words meant.
+He left behind a **dumbstruck**[^28] Jin Dong Bao, who was still **pondering**[^29] over what Han Li’s words meant.
 

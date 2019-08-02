@@ -1,0 +1,128 @@
+# Chapter 20 - **Essence**[^1] **Extraction**[^2] **Pill**[^3]
+
+After leaving the mountain region, Han Li could still hear the voices discussing how to settle Fatty Wang and Zhang Chang Gui’s **dispute**[^4]. Han Li decided not to concern himself about the matter.
+
+Whenever he thought Little Abacus’s dumbstruck expression, he could not help but laugh out loud. His small **excursion**[^5] outside the valley had indeed lifted his spirits, and he was no longer as **depressed**[^6] as before.
+
+He ventured out of the forest and walked straight ahead. A small **creek**[^7] appeared at the end of the path.
+
+Han Li inclined his head upwards and looked at the **fiery**[^8] hot sun before lowering his head to avoid the **glare**[^9] and to drink some water from the creek. He felt that taking a bath right now would not be a bad idea.
+
+As he bent downwards, with both of his hands entering the cool creek water, a voice filled with pain sounded out and reached his ears.
+
+Han Li was surprised. To think that there would be people in such a remote region.
+
+Following the sound of the voice, Han Li wandered **upstream**[^10] and found a person wearing a disciple’s robe lying on the ground, his body **convulsing**[^11] while his limbs **flailed**[^12] about.
+
+The moment Han Li saw the person, he knew that the disciple was suffering from an **acute**[^13] illness and if he didn’t help now, there might be a danger of death.
+
+Han Li rushed over and took out a wooden box from his robes. From the wooden box, he **drew out**[^14] silver needles that seemed to reflect the light as he **pierced**[^15] them into the acupoints on the disciple’s back.
+
+After he was done with the acupoints on the disciple’s back, he turned the body of the disciple around and began to work with the acupoints located on his **chest**[^16].
+
+When the disciple’s body was turned, Han Li sucked in a breath. He was shocked **beyond measure**[^17]. This person… this person, who was flailing about earlier, was none other than the Senior Disciple Li that participated in the battle earlier!
+
+**Stunned**[^18], Han Li could only gaze at the facial features of Senior Disciple Li.
+
+The current Senior Disciple Li did not have the air of a **peerless**[^19] expert at all. There was no heroic demeanor to be seen anywhere, only a cold face full of pain and suffering as his features **contorted**[^20] together and white **foam**[^21] **leaked**[^22] from his mouth. It was obvious that Senior Disciple Li suffering from too much pain to bear, and he was almost to the point of being unconscious.
+
+Han Li regained his calm as he muttered to himself. Akin to flowing water, the silver needle in Han Li’s hand begin to **prick**[^23] the acupoints on Senior Disciple Li body continuously over 10 times. At the final prick, Han Li wiped the **sweat**[^24] that had formed on his forehead and released a breath. The usage of the silver needle and strength needed to pierce each acupoint exhausted a huge amount of energy from him.
+
+After Senior Disciple Li’s body was **riddled**[^25] with silver needles, he finally woke up and regained consciousness.
+
+“You are…” Senior Disciple Li tried to say something, but he didn’t have enough strength, so he could not say more than a few words.
+
+“I’m from the God Hand Valley. Save your breath and slowly recover your strength. I can only remind you that your illness is very strange. In my estimation, only my teacher Doctor Mo would be able to save you. But sadly, he is currently away from the mountain.” Han Li took the **pulse**[^26] of Senior Disciple Li as he furrowed his brows in thought.
+
+“The… Medci..ne..is..at..” Senior Disciple Li’s face **paled**[^27] as his lips **shivered**[^28], lifting his arms to gesture at something, but he was unsuccessful.
+
+“You have medicine to cure the illness on your body?” Han Li roughly understood his meaning, and he questioned Senior Disciple Li.
+
+“Ye….s” Senior Disciple Li saw that Han Li understood his meaning, relaxed his features and nodded his head.
+
+Han Li was no longer polite as he searched Senior Disciple Li’s body for the **antidote**[^29]. He found many useless items, and amongst them, there was a small white **jade**[^30] bottle which he took out. This bottle was made of expensive material and was also tightly sealed. He guessed this was what Senior Disciple Li was looking for.
+
+As he took the bottle and glanced at Senior Disciple Li, his guess turned out correct. Senior Disciple Li’s expression was full of joy as he **frantically**[^31] blinked his eyes.
+
+Han Li unsealed the bottle, and contrary to his expectations, there was no fragrance of herbal components drifting out, but rather extremely **pungent**[^32] smell.
+
+The moment Han Li smelled the pungent smell, his expression turned nasty as he cautiously took out a pink color pill out from the bottle. This pill was extremely beautiful to **behold**[^33], yet the pungent smell that was emitted from the pill caused people to have difficulty breathing.
+
+“Is this a medicinal pill?” Han Li regained his calm face.
+
+Senior Disciple Li was still unable to speak, but he blinked his eyes to convey to Han Li that this was the right pill.
+
+“This Essence Extraction Pill was created from orchids, crab tailed flower, hundred year-old egg of blue ant… as well as 23 other rarely seen **ingredients**[^34]. After the pill is **concocted**[^35], it takes on a pinkish **hue**[^36] and emits a pungent smell. **Ingesting**[^37] it could unlock all of the potential of the human body, consuming the lifeforce in exchange. Am I right?”
+
+Han Li coldly glanced at Senior Disciple Li as he listed the pill’s descriptions word by word with an unmistakable tone in his voice.
+
+The moment Senior Disciple Li heard Han Li words, his face paled as if devoid of blood, and a frantic expression appeared on his face.
+
+“If you ingest this medicine, you would need to repeatedly ingest it after a certain period of time in addition to suffering the **excruciating**[^38] pain. If you refuse to ingest the second pill after eating the first, in the best **scenario**[^39], you would be **paralyzed**[^40] and in the worse scenario, you could even die! From the first time you ingested this pill, fate has already **decreed**[^41] that you would be dead in less than 10 years as the pill forcefully **unleashes**[^42] your potential at the expense of burning your life force,” Han Li said without stopping.
+
+“Don’t you try to lie to me that this is not the Essence Extraction Pill.” Han Li said.
+
+After hearing what Han Li had said, an expression of hopelessness appeared on Senior Disciple Li’s face while an indescribable shock appeared in his eyes.
+
+“Are you shocked because this particular medicine is very rare, and yet I know what it is?” Han Li could tell what Senior Disciple Li was thinking.
+
+“The answer is simple. I, too, have eaten a pill like this.”
+
+Han Li’s words broke the tension as he continued to shock Senior Disciple Li. After a while, Senior Disciple Li had an expression of disbelief.
+
+“The way I ate the pill was different from how you ate it. I only ate a total of 1 pill, but I separated the pill into 10 portions, which I slowly ingesting over a long period of time. The small amount of **drug**[^43] I consumed was not able to do any harm to my body. Because this particular pill and the smell it emitted was too obvious, I had a very strong impression of this pill, so I easily recognized yours. I had always thought that other than me, there would not be a second person to ingest this type of pill, but who would have thought, my fellow disciple had consumed the pill as well.”
+
+After saying this, Han Li gaze contained a hint of admiration as well as pity for Senior Disciple Li.
+
+Unwilling to see the pitiful gaze fixed on him, Senior Disciple Li closed his eyes. However, his heartbeat was **erratic**[^44] and his mind was in chaos.
+
+“You should have consumed these pills for a few years already. If you **refrain**[^45] from consuming it now, I could **beseech**[^46] Doctor Mo to concoct an antidote for you. Although the medicine cannot recover the life force you lost, it should still be able to **grant**[^47] you 20-30 years worth of life. But sadly, your martial skills would be lost forever. If you continue ingesting this pill, I can **deduce**[^48] from the backlash that happened earlier that you would have at most 5-6 years worth of life left, but obviously, your martial arts would only get better and better, even stronger than the might you displayed today. Since you dared to eat such a pill, this tells me that you are a person with an iron will. Since only you can decide your own fate, do you want to throw away this medicine or keep relying on it?”
+
+[^1]: 精髓;
+[^2]: 提取; 提炼; 拔出
+[^3]: 药丸; 药片
+[^4]: 争端; 纠纷; 
+[^5]: 短途旅行
+[^6]: 抑郁的; 沮丧的
+[^7]: 小河; 小溪; 
+[^8]: 火一般的
+[^9]: 刺眼的光;
+[^10]: 上游; 逆流;
+[^11]: 全身抖动; 
+[^12]: 乱动; 胡乱摆动;
+[^13]: 十分严重的
+[^14]: 抽出
+[^15]: 扎; 刺破;
+[^16]: 胸部; 胸膛
+[^17]: 非常; 极其; 
+[^18]: 使震惊
+[^19]: 无双的; 杰出的;
+[^20]: 扭曲，走样; 
+[^21]: 泡沫;
+[^22]: 泄露
+[^23]: 扎; 刺
+[^24]: 汗; 出汗
+[^25]: 布满(弹孔)的; 遍布
+[^26]: 脉搏; 脉率
+[^27]: 变苍白; 
+[^28]: 颤抖，哆嗦
+[^29]: 解毒药; 解毒剂
+[^30]: 玉;
+[^31]: 疯狂似地; 
+[^32]: 强烈的; 刺激性的;
+[^33]: 看; 看见; 
+[^34]: 成分
+[^35]: 调制，调合
+[^36]: 颜色; 色度
+[^37]: 食入; 咽下; 
+[^38]: 极痛苦的; 极坏的;
+[^39]: 预测;
+[^40]: 使瘫痪或麻痹;
+[^41]: 判决; 颁布
+[^42]: 突然释放;
+[^43]: 毒品; 药; 药物; 
+[^44]: 不规则的;
+[^45]: 克制; 节制; 避免; 
+[^46]: 恳求; 哀求; 乞求; 
+[^47]: 准予，允许
+[^48]: 推论; 推断

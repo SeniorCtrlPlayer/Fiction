@@ -1,0 +1,122 @@
+# Chapter 21 - Painkilling Medicine
+
+Senior Disciple Li’s eyelids lightly **shuddered**[^1] as he pondered intensely, trying to decide which was the better path for him.
+
+After a short moment, his tightly closed eyes **snapped**[^2] open as he stared **intently**[^3] at the pill in Han Li’s hand with a **feverish**[^4] gaze.
+
+Han Li did not say anything more and inserted the pill into Senior Disciple Li’s mouth. The white foam around his mouth did nothing to stop him from swallowing the pill, and after it was fully ingested, Han Li slowly **retracted**[^5] all of the silver needles from Senior Disciple Li’s body.
+
+After the **retrieval**[^6] of all the silver needles, the Essence Extraction Pill began to take effect. Senior Disciple Li’s pale face started to take on a reddish hue. At this moment, his body started to convulse again and his limbs started to shiver as a low **drone**[^7] issued from his **throat**[^8].
+
+Senior Disciple Li did not want to be a **laughing stock**[^9] in front of Han Li, so he tried unsuccessfully to **suppress**[^10] his pain-filled voice.
+
+The low drone involuntarily got louder and louder as the shivers got more intense. It was only after a long period of time that the droning began to slowly **subside**[^11].
+
+Finally, Senior Disciple Li recovered as his face returned to its normal, pale color, and his body stopped convulsing. This signaled that he successfully endured the last of the backlashes from consuming the Essence Extraction Pill.
+
+Senior Disciple Li straightened his body, crossed his legs, and close his eyes in order to enter meditation, attempting to circulate his Qi to heal his injuries. Han Li found a clean, large rock nearby and sat down on  it, watching Senior Disciple Li.
+
+After the time it took to eat a meal, the Senior Disciple Li, who was in a state of meditation, abruptly **wrenched**[^12] open his eyes and drew his saber in a  flash, placing the shining blade on Han Li’s neck.
+
+“Give me a reason not to kill you!” Senior Disciple Li’s eyes were full of coldness and filled with killing intent.
+
+“I just saved your life. Is that not a good enough reason?” Han Li stated calmly with no change to his expression except for the **twitching**[^13] of his brows. If one did not study Han Li’s face intently, they would not have seen it.
+
+Senior Disciple Li’s face slightly softened, but his eyes were still filled with killing intent as he stared at Han Li.
+
+“Before I made the decision to save you, I already guessed that you might kill me to protect your secret, but I didn’t think that your action would be so fast.” Han Li bitterly laughed as his face was filled with self-mockery.
+
+“Ke! Despite knowing that saving you would bring **calamity**[^14] uspon myself, I, a student of medical arts, couldn’t simply sit by and watch you die.” Han Li sighed.
+
+As Senior Disciple Li heard his words, his face took on a somewhat embarrassed expression, and he shifted the saber from Han Li’s neck a little but did not fully remove the blade.
+
+Han Li secretly let out a breath of relief, and he continued his speech more determinedly.
+
+“You have no need to worry that I would **divulge**[^15] your secret. One look at my face and you would know that I’m not one to **gossip**[^16], if you are still worried, I could **swear**[^17] a **binding**[^18] **oath**[^19]. You should be able to tell that  I’m not skilled in martial arts, so if you discovered that I broke my **vow**[^20], you could easily kill me,” Han Li calmly suggested.
+
+“Okay, swear a binding oath then.” Senior Disciple Li said straightforwardly.
+
+It was only now that Han Li relaxed. Before he saved Senior Disciple Li, he could infer that Senior Disciple Li was not one to forget a kindness, but he was not completely sure of his assessment. If he was wrong and Senior Disciple Li was a person that returned kindness with **viciousness**[^21], he would only be able to defend himself with his secret life-saving method.
+
+Knowing that he would not have to use it, Han Li stealthily retracted his hand from within his robes.
+
+After Han Li swore a binding oath, Senior Disciple Li finally retracted the saber and returned it to its **sheath**[^22].
+
+Han Li slightly felt a slight trace of blood on his throat, caused by the **keen edge**[^23] of the saber. It was **sticky**[^24] to the touch, and as Han Li heartbeat returned to normal, he could feel cold sweat **trickling**[^25] down his back.
+
+“What a close call! My **evaluation**[^26] prior to saving Senior Disciple Li was **not comprehensive enough**[^27]. I’m determined to learn from this mistake and to prevent my life from being in the control of someone else’s hands ever again.” He still had some fear **lingering**[^28] from this event.
+
+“If there’s no guarantee of my safety, I will definitely not save others in the future.” Han Li decided immediately.
+
+This was the first time Han Li had saved someone, but the experience left him with a bad taste in his mouth. This event only helped to **reinforce**[^29] that the world was full of unexpected **turnouts**[^30], and the last **vestige**[^31] of kindness in him was slowly being **discarded**[^32] away. Even though he had not turned evil, he was far from being a **saint**[^33].
+
+“You have saved my life and agreed to keep the matter a secret. I, Li Feiyu, **owe you a big favor henceforth**[^34]. As long as I’m still alive, no matter what you need help with, you can look for me. As long as I am able to accomplish the task, I will definitely help you.” As he reclaimed the items that Han Li ransacked through, Senior Disciple Li stated his vow straightforwardly, using his own name as a guarantee after he fully recovered from the pill’s backlash.
+
+“I fear that I currently have nothing to trouble you with, but you should already have plenty of troubles, no?” Han Li had a slight smile on his face as he faced Senior Disciple Li with another question.
+
+“How did you know?” Li Feiyu was **startled**[^35] and slightly lost his composure.
+
+“Anyone would have easily guessed. You are just a normal disciple under a Protector, yet with your skills, you have surpassed disciples of the Vice Sect Leaders, Division Heads, and Elders. How could they possibly let you live peacefully!?” Han Li’s response was like a needle drawing blood; with a single prick, he went straight to the heart of the matter.
+
+Senior Disciple Li’s expression was **gloomy**[^36] and overcast as he agreed in silence.
+
+“Your troubles are your own, I have no wish to interfere and cannot interfere even if I wanted to, but, for the excruciating backlash from consuming  the Essence Extraction Pill, I could help you lessen the pain.”
+
+“Is this true?” Li Feiyu suddenly snapped to attention as his previous gloomy expression was replaced with **anticipation**[^37] and excitement. He was  giddy since the backlash of the Essence Extraction Pill was extremely  **torturous**[^38].
+
+“Why would I lie to you when there is nothing beneficial for me to gain by doing so?” Han Li glanced  at Senior Disciple Li. He had already concocted a **remedy**[^39] that would greatly lessen the pain felt by others, a medicine that he researched in his spare time for Zhang Tie. It was extremely effective, greatly  cutting off the nerves ability from to feel pain.
+
+“This is truly excellent! Excellent!” Li Feiyu clasped his hands as he looked at Han Li with wonder and excitement.
+
+“Why are you looking at me with such an expression? I do not have the medicine on me right now. I need to return to God Hand Valley before I can concoct it for you.”
+
+After Li Feiyu heard what Han Li said, he had a slightly embarrassed look on his face. He had just threatened to kill Han Li and now, he was requesting his help.
+
+“Tomorrow at noon, wait for me at the entrance of the God Hand Valley. I will hand you the remedy in that location, but since Doctor Mo is currently away, I can’t allow anyone to simply enter the God Hand Valley,” Han Li explained.
+
+“Very well, I shall be there on time. Thank you, my dear brother.” Scared that Han Li would change his mind, Li Feiyu quickly responded with his **confirmation**[^40].
+
+“My name is Han Li, the personal disciple of Doctor Mo. Your cultivation in martial arts is so high, you can just directly call me Junior Brother Han in the future.”
+
+After Han Li heard the words “my dear brother” he couldn’t help but shiver and thus, quickly told Senior Disciple Li his name to prevent him from calling Han Li any more embarrassing titles.
+
+[^1]: 发抖，打颤
+[^2]: 啪的一声
+[^3]: 专心地; 
+[^4]: 激动的;
+[^5]: 撤销
+[^6]: 取回; 索回
+[^7]: 持续低音
+[^8]: 咽喉; 喉咙
+[^9]: 笑柄; 笑料; 
+[^10]: 压制; 禁止
+[^11]: 趋于平静; 平息; 减弱;
+[^12]: 猛拉;
+[^13]: 抽动;
+[^14]: 灾难; 灾祸; 
+[^15]: 泄露
+[^16]: 闲言碎语;
+[^17]: 发誓要
+[^18]: 必须遵守的
+[^19]: 誓言;
+[^20]: 誓，誓言，誓约; 
+[^21]: 恶意;
+[^22]: 鞘;
+[^23]: 利刃; 
+[^24]: 黏(性)的
+[^25]: 滴，淌
+[^26]: 估计
+[^27]: 不够全面
+[^28]: 迟迟不去的; 
+[^29]: 加强;
+[^30]: 道岔
+[^31]: 残留部分;丝毫，一点儿; 
+[^32]: 丢弃; 抛弃
+[^33]: 圣人
+[^34]: 从此以后欠你一个大人情
+[^35]: 使惊吓;
+[^36]: 忧郁的; 沮丧的; 无望的
+[^37]: 期盼; 期望; 
+[^38]: 折磨人的; 极端痛苦的
+[^39]: 药品
+[^40]: 确认书

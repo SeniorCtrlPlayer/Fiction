@@ -1,0 +1,96 @@
+# Chapter 23 - Tests
+
+Maybe lady luck was smiling on him. Abruptly, a sudden thought flashed past his mind.
+
+He quickly rushed towards the leather pouch which he had discarded and with a **deft**[^1] movement, took out the good luck charm that was hidden inside **neatly**[^2] and quickly.
+
+The moment his palm **brushed**[^3] against the good luck charm, a refreshing feeling was emitted from the bottle and eventually calmed his heart. His previous  frustrations and melancholy all disappeared without a trace, and his Qi and blood stopped surging, returning back to his normal state.
+
+Currently, Han Li had no interest in discovering the root of the problem that occurred earlier. Holding the good luck charm in his palm, he brought it forward in front of his eyelids, pressing it against his face. Gently  **caressing**[^4] it,  Han Li focused all of his attention on the bottle.
+
+After half a day, Han Li **heaved**[^5] a sigh of relief, diverting his attention away from the good luck charm.
+
+Han Li didn’t know that the phenomenon that happened to him earlier was not because of “Qigong Deviation” but rather because he suffered from a “Heart Demon” that all cultivators would eventually face. Luckily, he discovered it in its early **stages**[^6] and fought it off by focusing on an object that was familiar to him. If he hadn’t, the Heart Demon would  have entered his soul and controlled his body from within, causing him to bleed to death from his meridians. Of course, Han Li wouldn’t learn about this until after he truly stepped on to the path of cultivation in the future.
+
+Han Li **circulated**[^7] his Qi around his whole body and realized there was nothing abnormal. What made him **gasp**[^8] in astonishment was that instead of suffering injuries, his cultivation level had unknowingly increased by a great **extent**[^9]! Although  he did not make a breakthrough from the third layer to the fourth, but because of his struggle against the Heart Demon, he had reached the speak of the third layer earlier than expected and was only a hair length  away from breaking through to the 4th!
+
+Because of this unexpected stroke of luck, Han Li had a smile on his face. However, he had to forcefully suppress the **agitation**[^10] in his heart. He was afraid that his unstable emotions would lead to another attack by the Heart Demon. Han Li was uncertain whether he could survive it **intact**[^11] if another attack took place. He took the good luck charm that had saved his life and replaced it inside the leather pouch before hanging it on his neck.
+
+“Yi!” Han Li realized that there was an object long forgotten by him inside the leather pouch. An object that had been left lying about in there for a few years – the mysterious bottle!
+
+Han Li had completely forgotten about the mysterious bottle. The moment he saw it, he remembered the past events.
+
+The current Han Li was an **archive**[^12] of knowledge and wisdom that far **surpassed**[^13] the Han Li from four years ago. In these 4 years, he had read all the books in Doctor Mo’s residence and gained much knowledge. He also cultivated the nameless oracular chant, which effectively strengthened his mind. Looking back at the disturbance to his Qi, he could effectively deduce that this mysterious bottle was a treasured item with effects that were far from ordinary
+
+What Han Li needed to do now was to **delve**[^14] into and **unravel**[^15] the secrets of the bottle and to see if it could be used to benefit himself. There was no way he would just leave it lying around in the leather pouch and **waste**[^16] such a mysterious object.
+
+Han Li took out the bottle and inspected its entire surface as if he were trying to look for something that he had missed out on during his inspection 4 years ago.
+
+But no matter how much he inspected, there were no new discoveries.
+
+Han Li wasted no time and opened the cap of the bottle. Floating inside of the mysterious bottle was the jade green **droplet**[^17] of liquid that had **manifested**[^18] 4 years ago! It was no different than from when it first  appeared in the bottle.
+
+However, Han Li was positive that the secret of the bottle lay in the jade green droplet of liquid. To test his theories, he would need to find some small animals to perform a few cruel, live experiments.
+
+It was midnight, the sky pitch black outside. The darkness made it simply **impractical**[^19] for him to hunt for live animals. And after experiencing the attack of the heart demon earlier, Han Li was already somewhat exhausted. Even if he could catch a live animal, how would he be able to see if there were any changes to the test subject if it was pitch dark? Any actions Han Li could make would be a waste of effort.
+
+After contemplating, Han Li decided to rest and recover his energy before experimenting the next day. He told himself that there would be a big surprise waiting for him tomorrow, and with that thought, he drifted off to sleep.
+
+The next morning, after washing himself, Han Li went to eat a **hearty**[^20] breakfast. After that, he immediately went to speak to the head of the kitchen of the Seven  Mysteries Sect, **procuring**[^21] two lively gray **hares**[^22] for a few taels of silver before returning back to the valley.
+
+After he returned to the valley, Han Li chose a more spacious location inside the herb garden and tied the rabbits to a **stake**[^23], letting them stay outside in the blazing sun for quite a period of time.
+
+After the rabbits were **dizzy**[^24] from the **heat**[^25] and were almost dying of thirst, Han Li took out the mysterious bottle and **poured**[^26] the mysterious jade green droplet of liquid into a bowl before **diluting**[^27] it with water.
+
+The mysterious droplet of liquid was about the size of a bean and easily dissolved in the water, causing the whole bowl of water to turn into a jade green color.
+
+Han Li placed the bowl near the rabbits and waited for them to drink the water. Being out in the blazing sun for such a long period of time, the rabbits **scampered**[^28] up and drank the water in the bowl in big gulps. Han Li was unwilling to allow the rabbits to drink the entire bowl of diluted water, and after half of the water was gone, he removed the bowl from the rabbits’ reach.
+
+After that, he stood to the side and observed, patiently waiting for any reactions from the rabbits.
+
+After a short moment passed, about the time it takes for a stick of **incense**[^29] to burn, the rabbits started to frantically jump about, their actions becoming more and more agitated and **ferocious**[^30]. Their bodies began to undergo an astounding **mutation**[^31]. Their **fur**[^32] and skin started to **protrude**[^33] **lumps**[^34] the size of a chicken egg. The lumps multiplied until they covered the rabbits’ bodies. From **afar**[^35], Han Li felt that the rabbit looked quite **comical**[^36]. The lumps had caused the rabbits to grow bigger by a single size, swelling up until both of the rabbits grew to the size of watermelons.
+
+Looking at the mutation of the rabbits, along with their tortured **shrieks**[^37], Han Li felt a bit of fear in his heart.
+
+What just happened before his eyes was completely outside of his expectations. If the mysterious liquid was a **potent**[^38] poison or a **miraculous**[^39] medicine to increase cultivation, he would still not be so shocked. He did not expect that the rabbits would actually grow lumps all over their bodies and expand to such a size, becoming **grotesque**[^40] beyond belief.
+
+[^1]: 机敏的;
+[^2]: 恰好地；
+[^3]: 拂，掸，擦掉; 
+[^4]: 抚摩; 爱抚;
+[^5]: 起伏; (常指吃力地)缓慢发出
+[^6]: 时期
+[^7]: 循环; 传播; 流传
+[^8]: 喘气，喘息，倒抽气; 透不过气
+[^9]: 程度; 限度
+[^10]: 焦虑不安; 忧虑;
+[^11]: 完好无损; 完整; 
+[^12]: 档案; 档案馆
+[^13]: 超过
+[^14]: 翻找; 
+[^15]: 解开，拆散
+[^16]: 使…屈才; 
+[^17]: 小滴; 
+[^18]: 显现;
+[^19]: 不明智的; 不现实的;
+[^20]: 大的; 丰盛的; 
+[^21]: 获得，取得
+[^22]: 野兔; 
+[^23]: 桩; 标桩; 篱笆桩;
+[^24]: 头晕目眩的; 眩晕的;
+[^25]: 热; 温度;
+[^26]: 倾倒; 倒出
+[^27]: 稀释; 冲淡
+[^28]: 蹦蹦跳跳; 
+[^29]: 香(尤指宗教礼仪用的);
+[^30]: 凶猛的; 残暴的; 猛烈的; 
+[^31]: 变异，突变
+[^32]: 毛皮; 人造毛皮; 
+[^33]: 突出; 伸出; 鼓出; 
+[^34]: 块; 肿块;
+[^35]: 在远处; 从远处; 
+[^36]: 可笑的; 滑稽的; 有趣的; 
+[^37]: 尖叫;
+[^38]: 有强效的; 有力的; 烈性的
+[^39]: 奇迹般的; 不可思议的; 不平凡的; 
+[^40]: 怪诞的; 荒唐的; 荒谬的

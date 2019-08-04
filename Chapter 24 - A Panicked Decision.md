@@ -1,0 +1,113 @@
+# Chapter 24 - A Panicked Decision
+
+Looking at the rabbits in front of him, he saw that they continued to grow larger and expand.
+
+Han Li had at last realized that something was wrong. He suddenly remembered something. He looked at the **porcelain**[^1] bowl in his hand like a snake and threw it to the side by the medicine field. He then turned around and **took to his heels**[^2], running straight away from the rabbits for more than ten meters before stopping.
+
+Just as he thought of turning around, one after another, two sounds **simultaneously**[^3] exploded over. Han Li **shuddered**[^4] and turned his head for a look. As expected, each of the two rabbits had turned into a bloody **carcass**[^5], exploding into several **chunks**[^6]. **Flesh**[^7] and blood were **scattered**[^8], covering a patch of grass with a blanket of blood. Two **pits**[^9] appeared in the places where the rabbits had been originally **tethered**[^10] to. Surrounding the pits were the rabbits’ **messy**[^11] remains. Bloody chunks of meat **sprinkled**[^12] the ground. This was a **spectacle**[^13] too terrible to observe.
+
+Han Li let out a breath and sat down on the ground. He feared that if he had not reacted quickly enough at that instance, he would’ve been caught in the explosion. Although he might not have been seriously injured,  having his entire body **drenched**[^14] in rabbit blood and **dregs**[^15] of meat would not have been a pleasant affair.
+
+Waiting until after his heart calmed, Han Li stood up and walked next to the pits.
+
+After seeing the **mutilation**[^16] at the site, he took a look at the **shattered**[^17] porcelain bowl by the medicine field and was **dumbfounded**[^18].
+
+Han Li originally believed that he would have discovered the green liquid to be some sort of **panacea**[^19], but he did not expect it to be such a frightening thing. Poison was poison, but it made the rabbits die so **tragically**[^20]! No matter what he said to himself, he could not pass this off as a trick. It was far too frightening! Han Li was not unfamiliar with deadly poisons. Under Doctor Mo’s several years of instruction, Han Li was experienced with many poisons capable of delivering an instant death, but none of them were capable of killing a man so terribly.
+
+After a while, Han Li regained his composure. Keeping his head calm, he made plans to **depart**[^21] from the medicine field.
+
+Because it was soon going to be noon, he had to finish mixing the secret medicine to give to Senior Disciple Li. As for everything here, he would deal with it once he finished delivering the medicine.
+
+With these thoughts in mind, Han Li did not take another look at the scene of the explosion, leaving all these troubles behind for later, and returned to his residence. After resting for a moment, he brought the medicine to the entrance of God Hand’s Valley.
+
+Han Li was very **punctual**[^22]. He arrived at the entrance just as noon arrived. Li Feiyu seemed to have been anxiously waiting for him for a while now. 
+
+He alone waited at the valley’s entrance. He wore a white embroidered **gown**[^23]. However, he carried along the longsword that had previously left Han Li a deep impression. Since Han Li had not arrived yet, Li Feiyu’s  face showed a sliver of worry, anxiously looking towards the direction of the valley. 
+
+As soon as he saw Han Li finally arrive, he put away his expression of anxiety. The corner of his mouth slightly rose, his face exposing a smile. 
+
+“Junior Disciple Han, you are truly quite punctual! You said noon, and you arrived right on time. I was waiting here for almost an hour,” Li Feiyu said half jokingly, half complaining.
+
+“I am quite embarrassed. Blending the medicine took too much time yesterday, so I didn’t sleep until it was very late. In the morning, I woke a bit late. As soon as I finished taking care of a few matters at hand, it was almost noon already.” Said Han Li. Half of what he said was true.
+
+“Junior Disciple Han…medicine, the medicine, did you finish mixing it?” Because Senior Disciple Li was anxious and a little hurried, he had actually spoken with somewhat of a **stutter**[^24].
+
+Han Li did not directly answer Senior Disciple Li’s question. He calmly smiled, slowly taking out a large medicine bag out from his **bosom**[^25]. With a swing of his arm, he threw the medicine over to Li Feiyu.
+
+“Every time before you consume the Essence Extraction Pill, take the medicine by mixing a **spoon**[^26] of the medicinal **powder**[^27] with cooled **boiled**[^28] water, and it will **alleviate**[^29] all of your pain.”
+
+“Thank you, Junior Disciple Han! Thank you, Junior Disciple Han!” Senior Disciple Li was wild with joy. Even if it could only ease his pain, he would have regarded it as great news. The pain from taking the Essence Extraction Pill made it so that he would shiver even when it wasn’t  cold. He had tried many painkillers, but they all had no effect. Since Junior Disciple Han knew all of the characteristics of the Essence Extraction Pill and had taken it before, perhaps this medicine would actually be effective.
+
+“Don’t thank me yet. **Wait until after**[^30] the medicine works before thanking me. In addition, this is only a year’s worth of medicine. I currently used up all of the medicinal ingredients I had available. I won’t be able to make any more for you until I gather enough medicinal ingredients,” Han Li spoke **bluntly**[^31].
+
+“No problem. Isn’t this a year’s worth? This is enough for the time being. Regardless of whether or not  this medicine is effective, I, Li Feiyu appreciates Junior Disciple  Han’s kind intentions.” Senior Disciple Li had at last acquired what he desired. His expression returned to normal and was no longer artificial. He very straightforwardly expressed a humble feeling of respect towards Han Li.     
+
+Han Li faintly smiled. Not saying anything else, he **took the initiative**[^32] to part ways with Senior Disciple Li. 
+
+With the secret medicine in Li Feiyu’s hand, his head was filled with thoughts of quickly returning and testing the efficacy of the medicine. Seeing that Li Feiyu had no **urge**[^33] to bother Han Li any further, the two **mutually**[^34] took their leave.
+
+After returning from the valley entrance, Han Li first went to clean up the medicine fields. The rabbit remains, bloodied earth, and broken bowl shards were soon completely swept into a hole. Then, he endlessly covered the two earth pits by pushing it flat with dirt. Just like that, it appeared as if there were no difference in the landscape between its current state and its state before the experiment.
+
+Satisfied, Han Li clapped his hands to get rid of any **dust**[^35] **particles**[^36]. He looked all over the place, checking if there was anywhere he had overlooked.
+
+When his eyes fell onto where the porcelain bowl had shattered, he could not help but **mutter**[^37] to himself.
+
+He remembered very clearly that when he threw away the bowl, the **diluted**[^38] water within had spilled all over a small portion of the medicine field, landing on several medicinal herbs. He couldn’t help but be somewhat hesitant since he didn’t know whether these medicinal herbs would become poisonous after absorbing the water. Also, if someone were to eat these poisonous herbs, would they also experience the same horrible death as  the rabbits? Should Han Li immediately destroy these poisonous plants?  This chain of questions abruptly rose in Han Li’s mind.
+
+Han Li had pondered for half a day, unable to come to a decision. After examining the plants once more, he decided to only do another small experiment. If in the following days, the medicinal herbs really became  poisonous, it still wouldn’t be too late for him to destroy them.
+
+After deciding, he looked around to see if there was nothing else he could do and went back to the stone room to practice. He hoped that he would be capable of breaking through and continue advancing his foundation.
+
+Han Li currently no longer cared about the chant’s specific usefulness. His cultivation of this chant had already become **instinctive**[^39]. If he did not cultivate it, Han Li wouldn’t know what else he could do in the mountain valley. Stubbornly cultivating this chant to a greater layer of cultivation had already become his current life’s entire goal.
+
+After an afternoon absorbed in cultivation, Han Li **dispiritedly**[^40] discovered that he truly was not a genius. Although he felt the distance from the fourth layer could be **pierced**[^41] through by a finger, he couldn’t advance an inch forward and had **diligently**[^42] cultivated the whole afternoon in **vain**[^43]. 
+
+It seemed he couldn’t cultivate any further without the support of medicinal **elixirs**[^44]. Otherwise, it would be very likely that he would forever stay at the peak of the third layer, unable to advance any further.
+
+Han Li’s mind began to hope expectantly that Doctor Mo would return a bit earlier and was lucky enough to have found enough medicinal ingredients to help Han Li break through his current **predicament**[^45].
+
+[^1]: 瓷; 瓷器; 
+[^2]: 逃跑; 
+[^3]: 同时;
+[^4]: 发抖，打颤，战栗
+[^5]: 动物尸体;
+[^6]: 厚块; 厚片;
+[^7]: (动物或人的) 肉;
+[^8]: 分散的; 零散的
+[^9]: 深洞; 深坑;
+[^10]: 拴(牲畜); 
+[^11]: 肮脏的; 凌乱的;
+[^12]: 撒; 洒;
+[^13]: 出人意外的情况; 
+[^14]: 使湿透; 
+[^15]: 残渣;
+[^16]: 残缺
+[^17]: 破碎，碎裂
+[^18]: 使惊呆; 
+[^19]: 万灵药;
+[^20]: 悲惨地; 
+[^21]: 离开; 离去; 起程; 出发;
+[^22]: 按时的; 准时的; 守时的; 
+[^23]: 长袍
+[^24]: 口吃; 结结巴巴地说;
+[^25]: 胸襟
+[^26]: 勺; 匙
+[^27]: 粉末;
+[^28]: 沸腾; 煮沸; 烧开
+[^29]: 减轻; 缓和; 缓解; 
+[^30]: 等到以后
+[^31]: 直言地; 单刀直入地; 
+[^32]: 带头,倡导,发起
+[^33]: 敦促; 催促; 力劝
+[^34]: 相互地; 彼此; 共同地; 
+[^35]: 沙土; 尘土
+[^36]: 颗粒; 微粒;
+[^37]: 嘀咕; 嘟囔
+[^38]: 稀释; 冲淡; 
+[^39]: 本能的; 直觉的
+[^40]: 没精神地；气馁地; 
+[^41]: 扎; 刺破;
+[^42]: 勤勉地；勤奋地; 
+[^43]: 徒劳的; 枉然的; 
+[^44]: 圣水; 灵丹妙药; 长生不老药; 
+[^45]: 困境; 窘境; 

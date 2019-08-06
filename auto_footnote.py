@@ -32,21 +32,31 @@ def getindex(raw, pattern):
     return last_index
 
 
-def number(filename):
+def reset(text, pattern):
     """
-    对markdown文档部分的加粗词组进行脚注编号
+    去掉符合pattern的字符串
+    :param text:
+    :param pattern:
+    :return:
+    """
+    regex = re.compile(pattern, re.S)
+    return regex.sub("", text)
+
+
+def footnote(text):
+    """
+    对markdown文档部分的加粗词组重新脚注编号
     :param filename: markdown文件名
     :return: 教主编号后的str形式的markdown内容
     """
-    with open(filename,'r',encoding='utf-8') as file:
-        raw = file.read()
-        last_index = getindex(raw, '\*\*[^0-9a-zA-Z]')
-        after = list(raw)
-        max = len(last_index)
-        for _ in range(max):
-            after.insert(last_index.pop(), '[^{}]'.format(max))
-            max -= 1
-        return "".join(after)
+    text = reset(text, '\[\^\d+\]')
+    last_index = getindex(text, '\*\*[^0-9a-zA-Z]')
+    after = list(text)
+    max = len(last_index)
+    for _ in range(max):
+        after.insert(last_index.pop(), '[^{}]'.format(max))
+        max -= 1
+    return "".join(after)
 
 
 if __name__ == '__main__':
@@ -55,7 +65,8 @@ if __name__ == '__main__':
     if options.name is None:
         raise Exception("请输入文件名")
     name = options.name
-    after = number(name)
+    with open(name, 'r', encoding='utf-8') as file:
+        after = footnote(file.read())
 
     if options.outname != "":
         name = options.outname

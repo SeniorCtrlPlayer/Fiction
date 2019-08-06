@@ -1,0 +1,103 @@
+# Chapter 25 - Interference of Success
+
+Another night passed. Han Li woke up at the crack of  dawn and walked towards the medicine field. He wanted to observe whether or not the medicinal herbs had changed in any way.
+
+Before he even entered the medicinal field, he could suddenly smell several rich medicinal fragrances.
+
+Han Li was slightly dazed, but soon after, his mind stirred. “Perhaps it’s……”
+
+He couldn’t help but increase his **pace**[^1] until he finally arrived in front of several medicinal herbs that were emitting an intense fragrance.
+
+Were these the medicinal herbs from yesterday? Han Li didn’t dare to trust his eyes. Using his hands, he **fiercely**[^2] **slapped**[^3] his slightly **drowsy**[^4] face until the pain made him stop.
+
+“The leaves of this Yellow Dragon Grass has some **hints**[^5] of **purple**[^6], the Bitter Lotus Flower actually has flowered nine petals, and the skin of this Forgotten Sorrow Fruit has turned black, ha ha! Ha ha!” Han Li couldn’t **hold back**[^7] his laughter anymore. Usually, Han Li was calm and **composed**[^8], but this time, he couldn’t help but laugh heartily while facing the sky.
+
+“This time I came across a great fortune. These medicinal herbs only needed one night to develop **properties**[^9] that require two years of age. All of their appearances turned to that of herbs aged more than ten years. Seeing the color of the leaves, the shape of the fruit, and the petals fragrance…there are all qualities that belong to rare herbs that have already matured for quite some time.” Han Li carefully examined all of the medicinal herbs, confirming they were **identical**[^10] to those described in medicine books. They were truly rare medicinal ingredients that have  been aged for a great length of time.
+
+“If I can mature medicinal herbs with this method, how many rare medicinal ingredients will I have?! I can also sell the medicinal herbs that I don’t use. If that happens, how much silver will I make…?” Han Li was unable to **restrain**[^11] his excitement and started to let his imagination run wild.
+
+Han Li’s thoughts further developed and he became more **elated**[^12]. He felt that he had truly picked up a  treasure this time. All of a sudden, he **somersaulted**[^13] a few times. At this moment, he no longer maintained his normal calm appearance and expressed the excitement entirely like that of a normal 14-15-year-old **adolescent**[^14].
+
+After a while, Han Li had finally calmed down, and his brain recovered its **sharp wit**[^15]. He began to think of how to deal with the somewhat difficult problems that were  brought by this huge meat pie that fell from the sky.
+
+(TL: “huge meat pie that fell from the sky” is a Chinese idiom for a fortuitous encounter)
+
+First of all, there seemed to be no problems with the external appearance of these medicinal herbs. However, he still had not tested their medicinal  properties. After all, they only became like this after they absorbed that strange liquid. Who knew whether their internal elements were abnormal? Yesterday, he had seen those rabbits’ **miserable**[^16] **demise**[^17] with his own eyes. He still had to be careful.
+
+Secondly, the green liquid within the small mysterious bottle had already been used up. He did not know whether the strange phenomenon that created the  liquid drop would happen again. Perhaps it was an occurrence that only happened once. At night, he would go to confirm it himself.
+
+If there were no problems with these two matters, then he truly needed to grasp the details and particulars of the **drug**[^18]-inducing ingredients in this manner. Then he would have complete control over this **inconceivable**[^19]  method. 
+
+Han Li later pondered, arriving at the conclusion that if he were unable to resolve his few difficult problems that were earlier mentioned, this huge meat pie would only be a passing flower lost in a **fog**[^20].
+
+After everything was **taken into account**[^21], Han Li began experimenting.
+
+He first went to the large kitchen outside of the valley and asked the manager for another pair of gray-haired rabbits. Han Li’s actions made the kitchen manager both happy and somewhat puzzled. Why does this  youngster keep on buying live rabbits? Could it be he wants to **butcher**[^22] them himself and practice his **culinary**[^23] skills?
+
+Han Li didn’t care about what others thought of him. He didn’t keep the rabbits at the medicine fields like before; instead, he bound them to the gate of his room so that he could conveniently observe how they change at any time.
+
+After that, he went to the medicine fields and carefully picked the matured medicinal herbs. He made quite a few rolls of bone and muscle enhancing medicines and mixed them into the rabbits’ favorite foods. Everyday, he fed them three such meals to test whether these medicinal herbs were poisonous.
+
+With this finished, Han Li anxiously waited for nightfall. He felt time pass very slowly. Later, the moment he had been expectantly waiting for had finally arrived
+
+Just as the sky began to grow dark, Han Li ran out and took the small bottle from the back of his room and set it on the ground. He concentrated on the small bottle,  **anticipating**[^24] its change.
+
+As a quarter of an hour went by, the bottle showed no activity.
+
+Then half an hour went by, but the bottle still didn’t show any activity.
+
+And three-quarters of an hour……
+
+As time **elapsed**[^25], Han Li’s heart had sunk more and more. He had stayed awake until daybreak. The bottle, however, was still no different from before.
+
+He was completely dispirited. Could it be that this bottle was truly usable only once? Or did he not do something correctly?
+
+Han Li strengthened his spirit and looked at his surroundings.
+
+“There are no suspicious areas apart from the somewhat black sky.” Han Li said to himself.
+
+He suddenly stopped, at a loss for words. He lifted his head and gazed at  the sky. The sky was black and cloudy; not a thing could be seen. “The sky is a bit dark…” At these words, Han Li suddenly understood
+
+“Could it be that it’s because the clouds are preventing any light from the moon or the stars from falling on the bottle?” Han Li recalled that the bottle’s previous transformation occurred during a clear sky. There had  been nothing in the sky sheltering the moons and the stars, but today, there was **gloomy**[^26] weather. The whole sky was covered with black clouds.
+
+Han Li’s hopes were raised but he saw the color of the sky turn a bit pale. He knew that a clear sky would not happen tonight. He put away the bottle and prepared to test it again once the sky was clear.
+
+However, contrary to Han Li’s expectations, the next half month had uninterrupted **drizzling**[^27] and persisted until now.
+
+Han Li looked at the continuous waves of drizzle outside. His mind was gloomy, and he continued to grow more anxious as he waited for the weather to clear. It had continued to drizzle down constantly without end or even the slightest intention of stopping.
+
+He turned around towards the interior of his room and looked at the two rabbits, which had escaped the rain. They had a healthy and lively appearance, making Han Li even more depressed. Ever since the rabbits ate their medicine-infused food, not only were there no problems, they were even more **vigorous**[^28] than before. In these past ten days, Han Li had carefully watched them every day to confirm the rabbits had no symptoms of poisoning. Instead, because they ate the bone and muscle strengthening medicines, they became even more healthy.
+
+Not only did this good result fail to make Han Li happy, it also made his mind somewhat worried about his losses and gains. He hadn’t the slightest means to make himself calm. Whether or not the bottle could produce more green liquid had already become the key to all of his problems. In addition, the **lingering**[^29], **lousy**[^30] weather made it so that he  was unable to test his theory. How could this not make Han Li **utterly**[^31] depressed?
+
+[^1]: 速度
+[^2]: 猛烈地
+[^3]: 打，拍
+[^4]: 困倦的;
+[^5]: 少许; 少量; 
+[^6]: 紫色
+[^7]: 抑制住，忍住（眼泪、笑声等）; 
+[^8]: 镇静; 镇定; 平静; 
+[^9]: 道具；属性；性能；资产；地产
+[^10]: 完全同样的;
+[^11]: 忍住; 抑制; 控制
+[^12]: 兴高采烈的;
+[^13]: 做滚翻; 
+[^14]: 青少年; 
+[^15]: 机智
+[^16]: 痛苦的; 非常难受的
+[^17]: 死亡; 逝世;
+[^18]: 药; 药物; 
+[^19]: 难以想象的; 无法相信的; 
+[^20]: 雾; 迷惘; 困惑;
+[^21]: 考虑在内; 
+[^22]: 屠杀; 杀戮; 屠宰; 宰杀; 弄砸; 糟蹋; 
+[^23]: 烹饪的; 食物的; 
+[^24]: 期盼; 期望; 
+[^25]: 消逝，流逝
+[^26]: 阴暗的; 幽暗的
+[^27]: 下毛毛雨; 
+[^28]: 精力充沛的; 强壮的; 强健的; 
+[^29]: 缠绵的; 缓慢消失的; 迟迟不去的; 
+[^30]: 非常糟的; 极坏的; 恶劣的
+[^31]: 全然; 完全地; 彻底地; 

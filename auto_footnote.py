@@ -118,4 +118,3 @@ if __name__ == '__main__':
             with open(options.outdir+"/"+"{}-{}.md".format(str(options.batch_size*i+1),
                                         str((i+1)*options.batch_size)),'w',encoding="utf-8") as f:
                 f.write(merge_content)
-        # print(list(filenames))
